@@ -52,7 +52,7 @@ ${formattedDate}
 
 `;
 
-  events.forEach((event: any, index: number) => {
+  events.reverse().forEach((event: any, index: number) => {
     const renderedEvent = renderHTML(event.html);
     content += `
 ## Year - ${event.year}
