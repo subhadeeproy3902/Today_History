@@ -2,12 +2,10 @@ import { writeFileSync } from "fs";
 
 async function getTodayHistory() {
 
-  const API = process.env.API_URL || "";
-
   const date = new Date();
   const month = date.getMonth() + 1;
   const day = date.getDate();
-  const url = `${API}/${month}/${day}`;
+  const url = `http://history.muffinlabs.com/date/${month}/${day}`;
 
   try {
     const res = await fetch(url);
