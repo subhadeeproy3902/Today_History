@@ -141,4 +141,4 @@ The [second Fatimid invasion](https://wikipedia.org/wiki/Fatimid_invasion_of_Egy
 
 <br />
 
-> _Last Updated: 4/5/2024, 2:37:20 AM (in GMT)_
+> _Last Updated: 4/5/2024, 2:37:21 PM (in GMT)_
