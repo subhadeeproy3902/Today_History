@@ -1,219 +1,165 @@
 
 # Today's History 📜
 
-7th April 2024
+8th April 2024
 
-
-## Year - 2022
- [Ketanji Brown Jackson](https://wikipedia.org/wiki/Ketanji_Brown_Jackson "Ketanji Brown Jackson") is confirmed for the [Supreme Court of the United States](https://wikipedia.org/wiki/Supreme_Court_of_the_United_States "Supreme Court of the United States"), becoming the first black female justice. 
-
-## Year - 2021
- COVID-19 pandemic: The [Centers for Disease Control and Prevention](https://wikipedia.org/wiki/Centers_for_Disease_Control_and_Prevention "Centers for Disease Control and Prevention") announces that the [SARS-CoV-2 Alpha variant](https://wikipedia.org/wiki/SARS-CoV-2_Alpha_variant "SARS-CoV-2 Alpha variant") has become the dominant strain of [COVID-19](https://wikipedia.org/wiki/COVID-19 "COVID-19") in the United States.
 
 ## Year - 2020
- COVID-19 pandemic: Acting Secretary of the Navy [Thomas Modly](https://wikipedia.org/wiki/Thomas_Modly "Thomas Modly") resigns for his handling of the [COVID-19 pandemic on USS <i>Theodore Roosevelt</i>](https://wikipedia.org/wiki/COVID-19_pandemic_on_USS_Theodore_Roosevelt "COVID-19 pandemic on USS Theodore Roosevelt") and the dismissal of [Brett Crozier](https://wikipedia.org/wiki/Brett_Crozier "Brett Crozier").
+ [Bernie Sanders](https://wikipedia.org/wiki/Bernie_Sanders "Bernie Sanders") ends his [presidential campaign](https://wikipedia.org/wiki/Bernie_Sanders_2020_presidential_campaign "Bernie Sanders 2020 presidential campaign"), leaving [Joe Biden](https://wikipedia.org/wiki/Joe_Biden "Joe Biden") as the [Democratic Party](https://wikipedia.org/wiki/Democratic_Party_(United_States) "Democratic Party (United States)")'s nominee.
 
-## Year - 2020
- [COVID-19 pandemic](https://wikipedia.org/wiki/COVID-19_pandemic "COVID-19 pandemic"): [China](https://wikipedia.org/wiki/China "China") ends its [lockdown](https://wikipedia.org/wiki/Wuhan_lockdown "Wuhan lockdown") in [Wuhan](https://wikipedia.org/wiki/Wuhan "Wuhan").
+## Year - 2014
+ [Windows XP](https://wikipedia.org/wiki/Windows_XP "Windows XP") reaches its standard [End Of Life](https://wikipedia.org/wiki/End-of-life_product "End-of-life product") and is no longer supported.
 
-## Year - 2018
- Syria launches the [Douma chemical attack](https://wikipedia.org/wiki/Douma_chemical_attack "Douma chemical attack") during the [Eastern Ghouta offensive](https://wikipedia.org/wiki/Eastern_Ghouta_offensive_(February-April_2018) "Eastern Ghouta offensive (February-April 2018)") of the [Syrian Civil War](https://wikipedia.org/wiki/Syrian_civil_war "Syrian civil war").
+## Year - 2013
+ The [Islamic State of Iraq](https://wikipedia.org/wiki/Islamic_State_of_Iraq "Islamic State of Iraq") enters the [Syrian Civil War](https://wikipedia.org/wiki/Syrian_Civil_War "Syrian Civil War") and begins by declaring a merger with the [Al-Nusra Front](https://wikipedia.org/wiki/Al-Nusra_Front "Al-Nusra Front") under the name [Islamic State of Iraq and ash-Sham](https://wikipedia.org/wiki/Islamic_State_of_Iraq_and_the_Levant "Islamic State of Iraq and the Levant").
 
-## Year - 2018
- Former [Brazilian](https://wikipedia.org/wiki/Brazilians "Brazilians") president, [Luiz Inácio Lula da Silva](https://wikipedia.org/wiki/Luiz_In%C3%A1cio_Lula_da_Silva "Luiz In"), is arrested for corruption by determination of Judge [Sérgio Moro](https://wikipedia.org/wiki/Sergio_Moro "Sergio Moro"), from the “[Car-Wash Operation](https://wikipedia.org/wiki/Operation_Car_Wash "Operation Car Wash")”. Lula stayed imprisoned for 580 days, after being released by the [Brazilian Supreme Court](https://wikipedia.org/wiki/Supreme_Federal_Court "Supreme Federal Court").
+## Year - 2010
+ U.S. President [Barack Obama](https://wikipedia.org/wiki/Barack_Obama "Barack Obama") and Russian President [Dmitry Medvedev](https://wikipedia.org/wiki/Dmitry_Medvedev "Dmitry Medvedev") sign the [New START Treaty](https://wikipedia.org/wiki/New_START "New START").
 
-## Year - 2017
- U.S. President [Donald Trump](https://wikipedia.org/wiki/Donald_Trump "Donald Trump") orders the [2017 Shayrat missile strike](https://wikipedia.org/wiki/2017_Shayrat_missile_strike "2017 Shayrat missile strike") against Syria in retaliation for the [Khan Shaykhun chemical attack](https://wikipedia.org/wiki/Khan_Shaykhun_chemical_attack "Khan Shaykhun chemical attack").
+## Year - 2008
+ The construction of the [world's first skyscraper to integrate wind turbines](https://wikipedia.org/wiki/Bahrain_World_Trade_Center "Bahrain World Trade Center") is completed in [Bahrain](https://wikipedia.org/wiki/Bahrain "Bahrain").
 
-## Year - 2017
- A man [deliberately drives a hijacked truck into a crowd of people](https://wikipedia.org/wiki/2017_Stockholm_truck_attack "2017 Stockholm truck attack") in [Stockholm, Sweden](https://wikipedia.org/wiki/Stockholm "Stockholm"), killing five people and injuring fifteen others.
+## Year - 2006
+ [Shedden massacre](https://wikipedia.org/wiki/Shedden_massacre "Shedden massacre"): The bodies of eight men, all shot to death, are found in a field in [Shedden, Elgin County, Ontario](https://wikipedia.org/wiki/Shedden,_Elgin_County,_Ontario "Shedden, Elgin County, Ontario"). The murders are soon linked to the [Bandidos Motorcycle Club](https://wikipedia.org/wiki/Bandidos_Motorcycle_Club "Bandidos Motorcycle Club").
 
-## Year - 2011
- The [Israel Defense Forces](https://wikipedia.org/wiki/Israel_Defense_Forces "Israel Defense Forces") use their [Iron Dome](https://wikipedia.org/wiki/Iron_Dome "Iron Dome") missile system to successfully intercept a [BM-21 Grad](https://wikipedia.org/wiki/BM-21_Grad "BM-21 Grad") launched from [Gaza](https://wikipedia.org/wiki/Gaza_Strip "Gaza Strip"), marking the first [short-range missile](https://wikipedia.org/wiki/Short-range_ballistic_missile "Short-range ballistic missile") intercept ever.
+## Year - 2005
+ A [solar eclipse](https://wikipedia.org/wiki/Solar_eclipse_of_April_8,_2005 "Solar eclipse of April 8, 2005") occurs, visible over areas of the [Pacific Ocean](https://wikipedia.org/wiki/Pacific_Ocean "Pacific Ocean") and Latin American countries such as [Costa Rica](https://wikipedia.org/wiki/Costa_Rica "Costa Rica"), [Panama](https://wikipedia.org/wiki/Panama "Panama"), [Colombia](https://wikipedia.org/wiki/Colombia "Colombia") and [Venezuela](https://wikipedia.org/wiki/Venezuela "Venezuela").
 
-## Year - 2009
- [Mass protests](https://wikipedia.org/wiki/2009_Moldova_civil_unrest "2009 Moldova civil unrest") begin across [Moldova](https://wikipedia.org/wiki/Moldova "Moldova") under the belief that results from the [parliamentary election](https://wikipedia.org/wiki/April_2009_Moldovan_parliamentary_election "April 2009 Moldovan parliamentary election") are fraudulent.
+## Year - 2004
+ [War in Darfur](https://wikipedia.org/wiki/War_in_Darfur "War in Darfur"): The [Humanitarian Ceasefire Agreement](https://wikipedia.org/wiki/April_8_Humanitarian_Ceasefire_Agreement "April 8 Humanitarian Ceasefire Agreement") is signed by the [Sudanese](https://wikipedia.org/wiki/Sudan "Sudan") government, the [Justice and Equality Movement](https://wikipedia.org/wiki/Justice_and_Equality_Movement "Justice and Equality Movement"), and the [Sudan Liberation Movement/Army](https://wikipedia.org/wiki/Sudan_Liberation_Movement/Army "Sudan Liberation Movement/Army").
 
-## Year - 2009
- Former [Peruvian](https://wikipedia.org/wiki/Peru "Peru") President [Alberto Fujimori](https://wikipedia.org/wiki/Alberto_Fujimori "Alberto Fujimori") is sentenced to 25 years in prison for ordering killings and kidnappings by security forces.
+## Year - 1993
+ The [Space Shuttle <i>Discovery</i>](https://wikipedia.org/wiki/Space_Shuttle_Discovery "Space Shuttle Discovery") is launched on mission [STS-56](https://wikipedia.org/wiki/STS-56 "STS-56").
 
-## Year - 2003
- [Iraq War](https://wikipedia.org/wiki/Iraq_War "Iraq War"): U.S. troops [capture Baghdad](https://wikipedia.org/wiki/Battle_of_Baghdad_(2003) "Battle of Baghdad (2003)"); [Saddam Hussein](https://wikipedia.org/wiki/Saddam_Hussein "Saddam Hussein")'s [Ba'athist regime](https://wikipedia.org/wiki/Ba%27athist_Iraq "Ba'athist Iraq") falls two days later.
+## Year - 1993
+ The [Republic of North Macedonia](https://wikipedia.org/wiki/Republic_of_North_Macedonia "Republic of North Macedonia") joins the [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations").
 
-## Year - 2001
- [NASA](https://wikipedia.org/wiki/NASA "NASA") launches the [2001 Mars Odyssey](https://wikipedia.org/wiki/2001_Mars_Odyssey "2001 Mars Odyssey") orbiter.
+## Year - 1992
+ Retired [tennis](https://wikipedia.org/wiki/Tennis "Tennis") great [Arthur Ashe](https://wikipedia.org/wiki/Arthur_Ashe "Arthur Ashe") announces that he has [AIDS](https://wikipedia.org/wiki/AIDS "AIDS"), acquired from [blood transfusions](https://wikipedia.org/wiki/Blood_transfusion "Blood transfusion") during one of his two heart surgeries.
 
-## Year - 1999
- [Turkish Airlines Flight 5904](https://wikipedia.org/wiki/Turkish_Airlines_Flight_5904 "Turkish Airlines Flight 5904") crashes near [Ceyhan](https://wikipedia.org/wiki/Ceyhan "Ceyhan") in southern Turkey, killing six people.
+## Year - 1987
+ [Los Angeles Dodgers](https://wikipedia.org/wiki/Los_Angeles_Dodgers "Los Angeles Dodgers") executive [Al Campanis](https://wikipedia.org/wiki/Al_Campanis "Al Campanis") resigns amid controversy over [racist](https://wikipedia.org/wiki/Racism "Racism") remarks he had made while on <i>[Nightline](https://wikipedia.org/wiki/Nightline "Nightline")</i>.
 
-## Year - 1995
- [First Chechen War](https://wikipedia.org/wiki/First_Chechen_War "First Chechen War"): Russian paramilitary troops begin a [massacre](https://wikipedia.org/wiki/Samashki_massacre "Samashki massacre") of civilians in [Samashki](https://wikipedia.org/wiki/Samashki "Samashki"), [Chechnya](https://wikipedia.org/wiki/Chechnya "Chechnya").
+## Year - 1975
+ [Frank Robinson](https://wikipedia.org/wiki/Frank_Robinson "Frank Robinson") manages the [Cleveland Indians](https://wikipedia.org/wiki/Cleveland_Indians "Cleveland Indians") in his first game as major league [baseball](https://wikipedia.org/wiki/Baseball "Baseball")'s first [African American](https://wikipedia.org/wiki/African_American "African American") manager.
 
-## Year - 1994
- Auburn Calloway attempts to destroy [Federal Express Flight 705](https://wikipedia.org/wiki/Federal_Express_Flight_705 "Federal Express Flight 705") in order to allow his family to benefit from his [life insurance](https://wikipedia.org/wiki/Life_insurance "Life insurance") policy.
-
-## Year - 1994
- [Rwandan genocide](https://wikipedia.org/wiki/Rwandan_genocide "Rwandan genocide"): Massacres of [Tutsis](https://wikipedia.org/wiki/Tutsi "Tutsi") begin in [Kigali](https://wikipedia.org/wiki/Kigali "Kigali"), [Rwanda](https://wikipedia.org/wiki/Rwanda "Rwanda"), and soldiers kill the civilian Prime Minister [Agathe Uwilingiyimana](https://wikipedia.org/wiki/Agathe_Uwilingiyimana "Agathe Uwilingiyimana").
-
-## Year - 1990
- [John Poindexter](https://wikipedia.org/wiki/John_Poindexter "John Poindexter") is convicted for his role in the [Iran-Contra affair](https://wikipedia.org/wiki/Iran%E2%80%93Contra_affair "Iran-Contra affair"). In 1991 the convictions are reversed on appeal.
-
-## Year - 1990
- A fire breaks out on the [passenger ferry](https://wikipedia.org/wiki/Passenger_ferry "Passenger ferry") <i>[Scandinavian Star](https://wikipedia.org/wiki/MS_Scandinavian_Star "MS Scandinavian Star")</i>, killing 159 people.
-
-## Year - 1989
- [Soviet submarine <i>Komsomolets</i>](https://wikipedia.org/wiki/Soviet_submarine_K-278_Komsomolets "Soviet submarine K-278 Komsomolets") sinks in the [Barents Sea](https://wikipedia.org/wiki/Barents_Sea "Barents Sea") off the coast of Norway, killing 42 sailors.
-
-## Year - 1988
- Soviet Defense Minister [Dmitry Yazov](https://wikipedia.org/wiki/Dmitry_Yazov "Dmitry Yazov") orders the [Soviet withdrawal from Afghanistan](https://wikipedia.org/wiki/Soviet_withdrawal_from_Afghanistan "Soviet withdrawal from Afghanistan").
-
-## Year - 1983
- During [STS-6](https://wikipedia.org/wiki/STS-6 "STS-6"), astronauts [Story Musgrave](https://wikipedia.org/wiki/Story_Musgrave "Story Musgrave") and [Don Peterson](https://wikipedia.org/wiki/Donald_H._Peterson "Donald H. Peterson") perform the first [Space Shuttle](https://wikipedia.org/wiki/Space_Shuttle "Space Shuttle") spacewalk.
-
-## Year - 1982
- Iranian Foreign Affairs Minister [Sadegh Ghotbzadeh](https://wikipedia.org/wiki/Sadegh_Ghotbzadeh "Sadegh Ghotbzadeh") is arrested.
-
-## Year - 1980
- During the [Iran hostage crisis](https://wikipedia.org/wiki/Iran_hostage_crisis "Iran hostage crisis"), the United States severs relations with Iran.
-
-## Year - 1978
- Development of the [neutron bomb](https://wikipedia.org/wiki/Neutron_bomb "Neutron bomb") is canceled by President [Jimmy Carter](https://wikipedia.org/wiki/Jimmy_Carter "Jimmy Carter").
-
-## Year - 1977
- German Federal prosecutor [Siegfried Buback](https://wikipedia.org/wiki/Siegfried_Buback "Siegfried Buback") and his driver are shot by two [Red Army Faction](https://wikipedia.org/wiki/Red_Army_Faction "Red Army Faction") members while waiting at a red light.
-
-## Year - 1976
- Member of Parliament and suspected spy [John Stonehouse](https://wikipedia.org/wiki/John_Stonehouse "John Stonehouse") resigns from the [Labour Party](https://wikipedia.org/wiki/Labour_Party_(UK) "Labour Party (UK)") after being arrested for [faking his own death](https://wikipedia.org/wiki/Faked_death "Faked death").
-
-## Year - 1972
- Vietnam War: [Communist forces](https://wikipedia.org/wiki/Vietcong "Vietcong") [overrun](https://wikipedia.org/wiki/Battle_of_Loc_Ninh "Battle of Loc Ninh") the South Vietnamese town of [Loc Ninh](https://wikipedia.org/wiki/L%E1%BB%99c_Ninh,_B%C3%ACnh_Ph%C6%B0%E1%BB%9Bc "L").
-
-## Year - 1971
- [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): President [Richard Nixon](https://wikipedia.org/wiki/Richard_Nixon "Richard Nixon") announces his decision to quicken the pace of [Vietnamization](https://wikipedia.org/wiki/Vietnamization "Vietnamization").
-
-## Year - 1969
- The [Internet](https://wikipedia.org/wiki/Internet "Internet")'s symbolic birth date: Publication of [RFC](https://wikipedia.org/wiki/Request_for_Comments "Request for Comments") 1.
+## Year - 1970
+ [Bahr El-Baqar primary school bombing](https://wikipedia.org/wiki/Bahr_El-Baqar_primary_school_bombing "Bahr El-Baqar primary school bombing"): Israeli bombers accidentally strike an Egyptian school. Forty-six children are killed.
 
 ## Year - 1968
- Two-time [Formula One](https://wikipedia.org/wiki/Formula_One "Formula One") British [World Champion](https://wikipedia.org/wiki/List_of_Formula_One_World_Drivers%27_Champions "List of Formula One World Drivers' Champions") [Jim Clark](https://wikipedia.org/wiki/Jim_Clark "Jim Clark") dies in an accident during a [Formula Two](https://wikipedia.org/wiki/Formula_Two "Formula Two") race in [Hockenheim](https://wikipedia.org/wiki/Hockenheimring "Hockenheimring").
+ [BOAC Flight 712](https://wikipedia.org/wiki/BOAC_Flight_712 "BOAC Flight 712") catches fire shortly after takeoff. As a result of her actions in the accident, [Barbara Jane Harrison](https://wikipedia.org/wiki/Barbara_Jane_Harrison "Barbara Jane Harrison") is awarded a posthumous [George Cross](https://wikipedia.org/wiki/George_Cross "George Cross"), the only GC awarded to a woman in peacetime.
 
-## Year - 1965
- Representatives of the [National Congress of American Indians](https://wikipedia.org/wiki/National_Congress_of_American_Indians "National Congress of American Indians") testify before members of the US Senate in [Washington, D.C.](https://wikipedia.org/wiki/Washington,_D.C. "Washington, D.C.") against the termination of the [Colville](https://wikipedia.org/wiki/Colville_people "Colville people") tribe.
+## Year - 1960
+ The [Netherlands](https://wikipedia.org/wiki/Netherlands "Netherlands") and [West Germany](https://wikipedia.org/wiki/West_Germany "West Germany") sign an agreement to negotiate the return of [German land annexed by the Dutch](https://wikipedia.org/wiki/Dutch_annexation_of_German_territory_after_World_War_II "Dutch annexation of German territory after World War II") in return for 280 million [German marks](https://wikipedia.org/wiki/German_mark "German mark") as [Wiedergutmachung](https://wikipedia.org/wiki/Wiedergutmachung "Wiedergutmachung").
 
-## Year - 1964
- [IBM](https://wikipedia.org/wiki/IBM "IBM") announces the [System/360](https://wikipedia.org/wiki/IBM_System/360 "IBM System/360").
+## Year - 1959
+ The [Organization of American States](https://wikipedia.org/wiki/Organization_of_American_States "Organization of American States") drafts an agreement to create the [Inter-American Development Bank](https://wikipedia.org/wiki/Inter-American_Development_Bank "Inter-American Development Bank").
 
-## Year - 1956
- [Francoist Spain](https://wikipedia.org/wiki/Francoist_Spain "Francoist Spain") agrees to surrender its [protectorate](https://wikipedia.org/wiki/Spanish_protectorate_in_Morocco "Spanish protectorate in Morocco") in [Morocco](https://wikipedia.org/wiki/Morocco "Morocco").
-
-## Year - 1955
- [Winston Churchill](https://wikipedia.org/wiki/Winston_Churchill "Winston Churchill") resigns as [Prime Minister of the United Kingdom](https://wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom "Prime Minister of the United Kingdom") amid indications of failing health.
+## Year - 1959
+ A team of computer manufacturers, users, and university people led by [Grace Hopper](https://wikipedia.org/wiki/Grace_Hopper "Grace Hopper") meets to discuss the creation of a new [programming language](https://wikipedia.org/wiki/Programming_language "Programming language") that would be called [COBOL](https://wikipedia.org/wiki/COBOL "COBOL").
 
 ## Year - 1954
- United States President [Dwight D. Eisenhower](https://wikipedia.org/wiki/Dwight_D._Eisenhower "Dwight D. Eisenhower") gives his "[domino theory](https://wikipedia.org/wiki/Domino_theory "Domino theory")" speech during a news conference.
+ [South African Airways Flight 201](https://wikipedia.org/wiki/South_African_Airways_Flight_201 "South African Airways Flight 201") A [de Havilland DH.106 Comet 1](https://wikipedia.org/wiki/De_Havilland_Comet "De Havilland Comet") crashes into the sea during night killing 21 people.
 
-## Year - 1948
- The [World Health Organization](https://wikipedia.org/wiki/World_Health_Organization "World Health Organization") is established by the [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations").
+## Year - 1954
+ A Royal Canadian Air Force Canadair [Harvard](https://wikipedia.org/wiki/T-6_Texan "T-6 Texan") collides with a [Trans-Canada Airlines](https://wikipedia.org/wiki/Trans-Canada_Air_Lines "Trans-Canada Air Lines") [Canadair North Star](https://wikipedia.org/wiki/Canadair_North_Star "Canadair North Star") over [Moose Jaw, Saskatchewan](https://wikipedia.org/wiki/Moose_Jaw,_Saskatchewan "Moose Jaw, Saskatchewan"), killing 37 people.
+
+## Year - 1953
+ [Mau Mau](https://wikipedia.org/wiki/Mau_Mau_rebellion "Mau Mau rebellion") leader [Jomo Kenyatta](https://wikipedia.org/wiki/Jomo_Kenyatta "Jomo Kenyatta") is convicted by [British Kenya](https://wikipedia.org/wiki/British_Kenya "British Kenya")'s rulers.
+
+## Year - 1952
+ U.S. President [Harry Truman](https://wikipedia.org/wiki/Harry_Truman "Harry Truman") calls for the seizure of all domestic steel mills in an attempt to prevent the [1952 steel strike](https://wikipedia.org/wiki/1952_steel_strike "1952 steel strike").
+
+## Year - 1950
+ [India](https://wikipedia.org/wiki/India "India") and [Pakistan](https://wikipedia.org/wiki/Pakistan "Pakistan") sign the [Liaquat-Nehru Pact](https://wikipedia.org/wiki/Liaquat%E2%80%93Nehru_Pact "Liaquat-Nehru Pact").
 
 ## Year - 1946
- The [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") annexes [East Prussia](https://wikipedia.org/wiki/East_Prussia "East Prussia") as the [Kaliningrad Oblast](https://wikipedia.org/wiki/Kaliningrad_Oblast "Kaliningrad Oblast") of the [Russian Soviet Federative Socialist Republic](https://wikipedia.org/wiki/Russian_Soviet_Federative_Socialist_Republic "Russian Soviet Federative Socialist Republic").
+ [Électricité de France](https://wikipedia.org/wiki/%C3%89lectricit%C3%A9_de_France ""), the world's largest [utility company](https://wikipedia.org/wiki/Utility_company "Utility company"), is formed as a result of the [nationalisation](https://wikipedia.org/wiki/Nationalisation "Nationalisation") of a number of electricity producers, transporters and distributors.
 
 ## Year - 1945
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Imperial Japanese Navy](https://wikipedia.org/wiki/Imperial_Japanese_Navy "Imperial Japanese Navy") battleship <i>[Yamato](https://wikipedia.org/wiki/Japanese_battleship_Yamato "Japanese battleship Yamato")</i>, one of the two largest ever constructed, is sunk by [United States Navy](https://wikipedia.org/wiki/United_States_Navy "United States Navy") aircraft during [Operation Ten-Go](https://wikipedia.org/wiki/Operation_Ten-Go "Operation Ten-Go").
+ World War II: After an air raid accidentally destroys a train carrying about 4,000 [Nazi concentration camp](https://wikipedia.org/wiki/Nazi_concentration_camp "Nazi concentration camp") internees in [Prussian Hanover](https://wikipedia.org/wiki/Prussian_Hanover "Prussian Hanover"), the survivors are [massacred](https://wikipedia.org/wiki/Celler_Hasenjagd "Celler Hasenjagd") by Nazis.
 
 ## Year - 1943
- The [National Football League](https://wikipedia.org/wiki/National_Football_League "National Football League") makes [helmets](https://wikipedia.org/wiki/Football_helmet "Football helmet") mandatory.
+ [Otto and Elise Hampel](https://wikipedia.org/wiki/Otto_and_Elise_Hampel "Otto and Elise Hampel") are executed in [Berlin](https://wikipedia.org/wiki/Berlin "Berlin") for their anti-Nazi activities.
 
 ## Year - 1943
- [Ioannis Rallis](https://wikipedia.org/wiki/Ioannis_Rallis "Ioannis Rallis") becomes [collaborationist](https://wikipedia.org/wiki/Collaborationism "Collaborationism") [Prime Minister of Greece](https://wikipedia.org/wiki/Prime_Minister_of_Greece "Prime Minister of Greece") during the [Axis Occupation](https://wikipedia.org/wiki/Axis_occupation_of_Greece "Axis occupation of Greece").
+ U.S. President [Franklin D. Roosevelt](https://wikipedia.org/wiki/Franklin_D._Roosevelt "Franklin D. Roosevelt"), in an attempt to check [inflation](https://wikipedia.org/wiki/Inflation "Inflation"), freezes wages and prices, prohibits workers from changing jobs unless the war effort would be aided thereby, and bars rate increases by [common carriers](https://wikipedia.org/wiki/Common_carrier "Common carrier") and [public utilities](https://wikipedia.org/wiki/Public_utilities "Public utilities").
 
-## Year - 1943
- [The Holocaust in Ukraine](https://wikipedia.org/wiki/The_Holocaust_in_Ukraine "The Holocaust in Ukraine"): In [Terebovlia](https://wikipedia.org/wiki/Terebovlia "Terebovlia"), Germans order 1,100 Jews to undress and march through the city to the nearby village of Plebanivka, where they are shot and buried in ditches.
+## Year - 1942
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Japanese](https://wikipedia.org/wiki/Empire_of_Japan "Empire of Japan") take [Bataan](https://wikipedia.org/wiki/Bataan "Bataan") in the [Philippines](https://wikipedia.org/wiki/Philippines "Philippines").
 
 ## Year - 1940
- [Booker T. Washington](https://wikipedia.org/wiki/Booker_T._Washington "Booker T. Washington") becomes the first [African American](https://wikipedia.org/wiki/African_American "African American") to be depicted on a [United States postage stamp](https://wikipedia.org/wiki/Postage_stamps_and_postal_history_of_the_United_States "Postage stamps and postal history of the United States").
+ The Central Committee of the [Mongolian People's Revolutionary Party](https://wikipedia.org/wiki/Mongolian_People%27s_Party "Mongolian People's Party") elects [Yumjaagiin Tsedenbal](https://wikipedia.org/wiki/Yumjaagiin_Tsedenbal "Yumjaagiin Tsedenbal") as [General Secretary](https://wikipedia.org/wiki/General_Secretary_of_the_Mongolian_People%27s_Party "General Secretary of the Mongolian People's Party"), marking the beginning of his 44-year-long tenure as <i>de facto</i> leader of [Mongolia](https://wikipedia.org/wiki/Mongolian_People%27s_Republic "Mongolian People's Republic").
 
-## Year - 1939
- [Benito Mussolini](https://wikipedia.org/wiki/Benito_Mussolini "Benito Mussolini") declares an [Italian protectorate](https://wikipedia.org/wiki/Italian_protectorate_of_Albania_(1939%E2%80%931943) "Italian protectorate of Albania (1939-1943)") over [Albania](https://wikipedia.org/wiki/Albania "Albania") and forces King [Zog I](https://wikipedia.org/wiki/Zog_I_of_Albania "Zog I of Albania") into exile.
+## Year - 1935
+ The [Works Progress Administration](https://wikipedia.org/wiki/Works_Progress_Administration "Works Progress Administration") is formed when the [Emergency Relief Appropriation Act of 1935](https://wikipedia.org/wiki/Emergency_Relief_Appropriation_Act_of_1935 "Emergency Relief Appropriation Act of 1935") becomes law.
 
-## Year - 1933
- [Nazi Germany](https://wikipedia.org/wiki/Nazi_Germany "Nazi Germany") issues the [Law for the Restoration of the Professional Civil Service](https://wikipedia.org/wiki/Law_for_the_Restoration_of_the_Professional_Civil_Service "Law for the Restoration of the Professional Civil Service") banning Jews and political dissidents from civil service posts.
+## Year - 1929
+ [Indian independence movement](https://wikipedia.org/wiki/Indian_independence_movement "Indian independence movement"): At the Delhi Central Assembly, [Bhagat Singh](https://wikipedia.org/wiki/Bhagat_Singh "Bhagat Singh") and [Batukeshwar Dutt](https://wikipedia.org/wiki/Batukeshwar_Dutt "Batukeshwar Dutt") throw handouts and bombs to court arrest.
 
-## Year - 1933
- [Prohibition in the United States](https://wikipedia.org/wiki/Prohibition_in_the_United_States "Prohibition in the United States") is repealed for [beer](https://wikipedia.org/wiki/Beer "Beer") of no more than 3.2% alcohol by weight, eight months before the ratification of the [Twenty-first Amendment to the United States Constitution](https://wikipedia.org/wiki/Twenty-first_Amendment_to_the_United_States_Constitution "Twenty-first Amendment to the United States Constitution"). (Now celebrated as [National Beer Day](https://wikipedia.org/wiki/National_Beer_Day_(United_States) "National Beer Day (United States)") in the [United States](https://wikipedia.org/wiki/United_States "United States").)
+## Year - 1924
+ [Sharia](https://wikipedia.org/wiki/Sharia "Sharia") courts are abolished in [Turkey](https://wikipedia.org/wiki/Turkey "Turkey"), as part of [Atatürk's Reforms](https://wikipedia.org/wiki/Atat%C3%BCrk%27s_Reforms "Atat").
 
-## Year - 1927
- [AT&amp;T](https://wikipedia.org/wiki/AT%26T "AT&amp;T") engineer [Herbert Ives](https://wikipedia.org/wiki/Herbert_Ives "Herbert Ives") transmits the first long-distance public [television broadcast](https://wikipedia.org/wiki/Television_broadcast "Television broadcast") (from [Washington, D.C.](https://wikipedia.org/wiki/Washington,_D.C. "Washington, D.C."), to [New York City](https://wikipedia.org/wiki/New_York_City "New York City"), displaying the image of [Commerce Secretary](https://wikipedia.org/wiki/Commerce_Secretary "Commerce Secretary") [Herbert Hoover](https://wikipedia.org/wiki/Herbert_Hoover "Herbert Hoover")).
+## Year - 1918
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): Actors [Douglas Fairbanks](https://wikipedia.org/wiki/Douglas_Fairbanks "Douglas Fairbanks") and [Charlie Chaplin](https://wikipedia.org/wiki/Charlie_Chaplin "Charlie Chaplin") sell [war bonds](https://wikipedia.org/wiki/War_bond "War bond") on the streets of New York City's financial district.
 
-## Year - 1926
- [Violet Gibson](https://wikipedia.org/wiki/Violet_Gibson "Violet Gibson") attempts to assassinate Italian Prime Minister [Benito Mussolini](https://wikipedia.org/wiki/Benito_Mussolini "Benito Mussolini").
+## Year - 1913
+ The [17th Amendment to the United States Constitution](https://wikipedia.org/wiki/17th_Amendment_to_the_United_States_Constitution "17th Amendment to the United States Constitution"), requiring direct [election](https://wikipedia.org/wiki/Election "Election") of [Senators](https://wikipedia.org/wiki/United_States_Senate "United States Senate"), becomes law.
 
-## Year - 1922
- [Teapot Dome scandal](https://wikipedia.org/wiki/Teapot_Dome_scandal "Teapot Dome scandal"): United States Secretary of the Interior [Albert B. Fall](https://wikipedia.org/wiki/Albert_B._Fall "Albert B. Fall") [leases](https://wikipedia.org/wiki/Teapot_Dome_scandal "Teapot Dome scandal") federal petroleum reserves to private oil companies on excessively generous terms.
+## Year - 1911
+ [Dutch](https://wikipedia.org/wiki/Dutch_people "Dutch people") physicist [Heike Kamerlingh Onnes](https://wikipedia.org/wiki/Heike_Kamerlingh_Onnes "Heike Kamerlingh Onnes") discovers [superconductivity](https://wikipedia.org/wiki/Superconductivity "Superconductivity").
+
+## Year - 1908
+ [Harvard University](https://wikipedia.org/wiki/Harvard_University "Harvard University") votes to establish the [Harvard Business School](https://wikipedia.org/wiki/Harvard_Business_School "Harvard Business School").
 
 ## Year - 1906
- The [Algeciras Conference](https://wikipedia.org/wiki/Algeciras_Conference "Algeciras Conference") gives France and Spain control over [Morocco](https://wikipedia.org/wiki/Morocco "Morocco").
+ [Auguste Deter](https://wikipedia.org/wiki/Auguste_Deter "Auguste Deter"), the first person to be diagnosed with [Alzheimer's disease](https://wikipedia.org/wiki/Alzheimer%27s_disease "Alzheimer's disease"), dies.
 
-## Year - 1906
- [Mount Vesuvius](https://wikipedia.org/wiki/Mount_Vesuvius "Mount Vesuvius") erupts and devastates [Naples](https://wikipedia.org/wiki/Naples "Naples").
+## Year - 1904
+ The [French Third Republic](https://wikipedia.org/wiki/French_Third_Republic "French Third Republic") and the [United Kingdom of Great Britain and Ireland](https://wikipedia.org/wiki/United_Kingdom_of_Great_Britain_and_Ireland "United Kingdom of Great Britain and Ireland") sign the <i>[Entente cordiale](https://wikipedia.org/wiki/Entente_cordiale "Entente cordiale")</i>.
 
-## Year - 1868
- [Thomas D'Arcy McGee](https://wikipedia.org/wiki/Thomas_D%27Arcy_McGee "Thomas D'Arcy McGee"), one of the Canadian [Fathers of Confederation](https://wikipedia.org/wiki/Fathers_of_Confederation "Fathers of Confederation"), is assassinated by a [Fenian](https://wikipedia.org/wiki/Fenian "Fenian") activist.
+## Year - 1895
+ In <i>[Pollock v. Farmers' Loan &amp; Trust Co.](https://wikipedia.org/wiki/Pollock_v._Farmers%27_Loan_%26_Trust_Co. "Pollock v. Farmers' Loan &amp; Trust Co.")</i> the [Supreme Court of the United States](https://wikipedia.org/wiki/Supreme_Court_of_the_United_States "Supreme Court of the United States") declares unapportioned [income tax](https://wikipedia.org/wiki/Income_tax_in_the_United_States "Income tax in the United States") to be [unconstitutional](https://wikipedia.org/wiki/Constitutionality "Constitutionality").
 
-## Year - 1862
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): The Union's [Army of the Tennessee](https://wikipedia.org/wiki/Army_of_the_Tennessee "Army of the Tennessee") and the [Army of the Ohio](https://wikipedia.org/wiki/Army_of_the_Ohio "Army of the Ohio") [defeat](https://wikipedia.org/wiki/Battle_of_Shiloh "Battle of Shiloh") the Confederate [Army of Mississippi](https://wikipedia.org/wiki/Army_of_Mississippi "Army of Mississippi") near [Shiloh, Tennessee](https://wikipedia.org/wiki/Shiloh,_Hardin_County,_Tennessee "Shiloh, Hardin County, Tennessee").
+## Year - 1886
+ [William Ewart Gladstone](https://wikipedia.org/wiki/William_Ewart_Gladstone "William Ewart Gladstone") introduces the first [Irish Home Rule Bill](https://wikipedia.org/wiki/Irish_Government_Bill_1886 "Irish Government Bill 1886") into the [British House of Commons](https://wikipedia.org/wiki/House_of_Commons_of_the_United_Kingdom "House of Commons of the United Kingdom").
 
-## Year - 1831
- [Pedro II](https://wikipedia.org/wiki/Pedro_II_of_Brazil "Pedro II of Brazil") becomes Emperor of [Empire of Brazil](https://wikipedia.org/wiki/Empire_of_Brazil "Empire of Brazil").
+## Year - 1866
+ [Austro-Prussian War](https://wikipedia.org/wiki/Austro-Prussian_War "Austro-Prussian War"): [Italy](https://wikipedia.org/wiki/Italy "Italy") and [Prussia](https://wikipedia.org/wiki/Prussia "Prussia") sign a secret alliance against the [Austrian Empire](https://wikipedia.org/wiki/Austrian_Empire "Austrian Empire").
 
-## Year - 1824
- The [Mechanics' Institution](https://wikipedia.org/wiki/Mechanics%27_institute "Mechanics' institute") is established in [Manchester](https://wikipedia.org/wiki/Manchester "Manchester"), England at the Bridgewater Arms hotel, as part of a national movement for the education of working men. The institute is the precursor to three Universities in the city: the [University of Manchester](https://wikipedia.org/wiki/University_of_Manchester "University of Manchester"), [UMIST](https://wikipedia.org/wiki/UMIST "UMIST") and the [Metropolitan University of Manchester](https://wikipedia.org/wiki/Metropolitan_University_of_Manchester "Metropolitan University of Manchester") (MMU).
+## Year - 1832
+ [Black Hawk War](https://wikipedia.org/wiki/Black_Hawk_War "Black Hawk War"): Around 300 United States 6th Infantry troops leave [St. Louis, Missouri](https://wikipedia.org/wiki/St._Louis,_Missouri "St. Louis, Missouri") to fight the [Sauk](https://wikipedia.org/wiki/Sauk_people "Sauk people") [Native Americans](https://wikipedia.org/wiki/Native_Americans_in_the_United_States "Native Americans in the United States").
 
-## Year - 1805
- German composer [Ludwig van Beethoven](https://wikipedia.org/wiki/Ludwig_van_Beethoven "Ludwig van Beethoven") premieres his [Third Symphony](https://wikipedia.org/wiki/Symphony_No._3_(Beethoven) "Symphony No. 3 (Beethoven)"), at the [Theater an der Wien](https://wikipedia.org/wiki/Theater_an_der_Wien "Theater an der Wien") in [Vienna](https://wikipedia.org/wiki/Vienna "Vienna").
+## Year - 1820
+ The <i>[Venus de Milo](https://wikipedia.org/wiki/Venus_de_Milo "Venus de Milo")</i> is discovered on the [Aegean](https://wikipedia.org/wiki/Aegean_Sea "Aegean Sea") island of [Milos](https://wikipedia.org/wiki/Milos "Milos").
 
-## Year - 1805
- [Lewis and Clark Expedition](https://wikipedia.org/wiki/Lewis_and_Clark_Expedition "Lewis and Clark Expedition"): The [Corps of Discovery](https://wikipedia.org/wiki/Corps_of_Discovery "Corps of Discovery") breaks camp among the [Mandan](https://wikipedia.org/wiki/Mandan "Mandan") tribe and resumes its journey West along the [Missouri River](https://wikipedia.org/wiki/Missouri_River "Missouri River").
+## Year - 1812
+ Czar [Alexander I](https://wikipedia.org/wiki/Alexander_I_of_Russia "Alexander I of Russia"), the [Russian Emperor](https://wikipedia.org/wiki/Emperor_of_Russia "Emperor of Russia") and the [Grand Duke of Finland](https://wikipedia.org/wiki/Grand_Duke_of_Finland "Grand Duke of Finland"), officially announces the transfer of the status of the Finnish capital from [Turku](https://wikipedia.org/wiki/Turku "Turku") to [Helsinki](https://wikipedia.org/wiki/Helsinki "Helsinki").
 
-## Year - 1798
- The [Mississippi Territory](https://wikipedia.org/wiki/Mississippi_Territory "Mississippi Territory") is organized from disputed territory claimed by both the [United States](https://wikipedia.org/wiki/United_States "United States") and the [Spanish Empire](https://wikipedia.org/wiki/Spanish_Empire "Spanish Empire"). It is expanded in 1804 and again in 1812.
+## Year - 1730
+ [Shearith Israel](https://wikipedia.org/wiki/Congregation_Shearith_Israel "Congregation Shearith Israel"), the first [synagogue](https://wikipedia.org/wiki/Synagogue "Synagogue") in continental North America, is dedicated.
 
-## Year - 1790
- [Greek War of Independence](https://wikipedia.org/wiki/Greek_War_of_Independence "Greek War of Independence"): Greek revolutionary [Lambros Katsonis](https://wikipedia.org/wiki/Lambros_Katsonis "Lambros Katsonis") loses three of his ships in the [Battle of Andros](https://wikipedia.org/wiki/Battle_of_Andros_(1790) "Battle of Andros (1790)"). 
+## Year - 1605
+ The city of [Oulu](https://wikipedia.org/wiki/Oulu "Oulu"), [Finland](https://wikipedia.org/wiki/Finland "Finland"), is founded by [Charles IX of Sweden](https://wikipedia.org/wiki/Charles_IX_of_Sweden "Charles IX of Sweden").
 
-## Year - 1795
- The [French First Republic](https://wikipedia.org/wiki/French_First_Republic "French First Republic") adopts the [kilogram](https://wikipedia.org/wiki/Kilogram "Kilogram") and [gram](https://wikipedia.org/wiki/Gram "Gram") as its primary unit of mass.
+## Year - 1271
+ In [Syria](https://wikipedia.org/wiki/Syria "Syria"), sultan [Baibars](https://wikipedia.org/wiki/Baibars "Baibars") conquers the [Krak des Chevaliers](https://wikipedia.org/wiki/Krak_des_Chevaliers "Krak des Chevaliers").
 
-## Year - 1788
- [Settlers](https://wikipedia.org/wiki/List_of_early_settlers_of_Marietta,_Ohio "List of early settlers of Marietta, Ohio") establish [Marietta, Ohio](https://wikipedia.org/wiki/Marietta,_Ohio "Marietta, Ohio"), the first permanent settlement created by [U.S. citizens](https://wikipedia.org/wiki/Citizenship_of_the_United_States "Citizenship of the United States") in the recently organized [Northwest Territory](https://wikipedia.org/wiki/Northwest_Territory "Northwest Territory").
+## Year - 1250
+ [Seventh Crusade](https://wikipedia.org/wiki/Seventh_Crusade "Seventh Crusade"): [Ayyubids](https://wikipedia.org/wiki/Ayyubid_dynasty "Ayyubid dynasty") of Egypt capture King [Louis IX of France](https://wikipedia.org/wiki/Louis_IX_of_France "Louis IX of France") in the [Battle of Fariskur](https://wikipedia.org/wiki/Battle_of_Fariskur_(1250) "Battle of Fariskur (1250)").
 
-## Year - 1767
- End of [Burmese-Siamese War (1765-67)](https://wikipedia.org/wiki/Burmese%E2%80%93Siamese_War_(1765%E2%80%9367) "Burmese-Siamese War (1765-67)").
+## Year - 1232
+ [Mongol-Jin War](https://wikipedia.org/wiki/Mongol_conquest_of_the_Jin_dynasty "Mongol conquest of the Jin dynasty"): The [Mongols](https://wikipedia.org/wiki/Mongol_Empire "Mongol Empire") begin their [siege on Kaifeng](https://wikipedia.org/wiki/Mongol_siege_of_Kaifeng "Mongol siege of Kaifeng"), the capital of the [Jin dynasty](https://wikipedia.org/wiki/Jin_dynasty_(1115%E2%80%931234) "Jin dynasty (1115-1234)").
 
-## Year - 1724
- Premiere performance of [Johann Sebastian Bach](https://wikipedia.org/wiki/Johann_Sebastian_Bach "Johann Sebastian Bach")'s <i>[St John Passion](https://wikipedia.org/wiki/St_John_Passion "St John Passion")</i>, [BWV](https://wikipedia.org/wiki/Bach-Werke-Verzeichnis "Bach-Werke-Verzeichnis") 245, at [St. Nicholas Church, Leipzig](https://wikipedia.org/wiki/St._Nicholas_Church,_Leipzig "St. Nicholas Church, Leipzig").
+## Year - 1139
+ [Roger II of Sicily](https://wikipedia.org/wiki/Roger_II_of_Sicily "Roger II of Sicily") is excommunicated by [Innocent II](https://wikipedia.org/wiki/Innocent_II "Innocent II") for supporting [Anacletus II](https://wikipedia.org/wiki/Antipope_Anacletus_II "Antipope Anacletus II") as [pope](https://wikipedia.org/wiki/Pope "Pope") for seven years, even though Roger had already publicly recognized Innocent's claim to the papacy.
 
-## Year - 1541
- [Francis Xavier](https://wikipedia.org/wiki/Francis_Xavier "Francis Xavier") leaves [Lisbon](https://wikipedia.org/wiki/Lisbon "Lisbon") on a mission to the [Portuguese East Indies](https://wikipedia.org/wiki/Portuguese_East_Indies "Portuguese East Indies").
+## Year - 876
+The [Battle of Dayr al-'Aqul](https://wikipedia.org/wiki/Battle_of_Dayr_al-%27Aqul "Battle of Dayr al-'Aqul") saves [Baghdad](https://wikipedia.org/wiki/Baghdad "Baghdad") from the [Saffarids](https://wikipedia.org/wiki/Saffarids "Saffarids").
 
-## Year - 1521
- [Ferdinand Magellan](https://wikipedia.org/wiki/Ferdinand_Magellan "Ferdinand Magellan") arrives at [Cebu](https://wikipedia.org/wiki/Cebu_(island) "Cebu (island)").
-
-## Year - 1449
- [Felix V](https://wikipedia.org/wiki/Antipope_Felix_V "Antipope Felix V") abdicates his claim to the [papacy](https://wikipedia.org/wiki/Pope "Pope"), ending the reign of the final [Antipope](https://wikipedia.org/wiki/Antipope "Antipope").
-
-## Year - 1348
- Holy Roman Emperor [Charles IV](https://wikipedia.org/wiki/Charles_IV,_Holy_Roman_Emperor "Charles IV, Holy Roman Emperor") charters [Prague University](https://wikipedia.org/wiki/Charles_University "Charles University").
-
-## Year - 1141
- [Empress Matilda](https://wikipedia.org/wiki/Empress_Matilda "Empress Matilda") becomes the first female ruler of England, adopting the title "Lady of the English".
-
-## Year - 529
-First <i>[Corpus Juris Civilis](https://wikipedia.org/wiki/Corpus_Juris_Civilis "Corpus Juris Civilis")</i>, a fundamental work in [jurisprudence](https://wikipedia.org/wiki/Jurisprudence "Jurisprudence"), is issued by [Eastern Roman Emperor](https://wikipedia.org/wiki/Eastern_Roman_Emperor "Eastern Roman Emperor") [Justinian I](https://wikipedia.org/wiki/Justinian_I "Justinian I").
-
-## Year - 451
-[Attila the Hun](https://wikipedia.org/wiki/Attila "Attila") captures [Metz](https://wikipedia.org/wiki/Metz "Metz") in [France](https://wikipedia.org/wiki/France "France"), killing most of its inhabitants and burning the town.
+## Year - 217
+[Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") [Caracalla](https://wikipedia.org/wiki/Caracalla "Caracalla") is assassinated and is succeeded by his [Praetorian Guard](https://wikipedia.org/wiki/Praetorian_Guard "Praetorian Guard") [prefect](https://wikipedia.org/wiki/Prefect "Prefect"), [Marcus Opellius Macrinus](https://wikipedia.org/wiki/Marcus_Opellius_Macrinus "Marcus Opellius Macrinus").
 
 <br />
 
-> _Last Updated: 4/7/2024, 2:37:21 PM (in GMT)_
+> _Last Updated: 4/8/2024, 2:39:34 AM (in GMT)_
