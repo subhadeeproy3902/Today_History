@@ -162,4 +162,4 @@ The [Battle of Dayr al-'Aqul](https://wikipedia.org/wiki/Battle_of_Dayr_al-%27Aq
 
 <br />
 
-> _Last Updated: 4/8/2024, 2:39:34 AM (in GMT)_
+> _Last Updated: 4/8/2024, 2:37:16 PM (in GMT)_
