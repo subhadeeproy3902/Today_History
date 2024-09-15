@@ -174,4 +174,4 @@ Major [Fatimid](https://wikipedia.org/wiki/Fatimid "Fatimid") victory over the [
 
 <br />
 
-> _Last Updated: 9/15/2024, 3:03:32 AM (in GMT)_
+> _Last Updated: 9/15/2024, 2:38:01 PM (in GMT)_
