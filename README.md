@@ -1,141 +1,141 @@
 
 # Today's History 📜
 
-5th October 2024
+6th October 2024
 
 
-## Year - 2011
- In the [Mekong River massacre](https://wikipedia.org/wiki/Mekong_River_massacre "Mekong River massacre"), two Chinese cargo boats are hijacked and 13 crew members murdered.
+## Year - 2022
+ [Annie Ernaux](https://wikipedia.org/wiki/Annie_Ernaux "Annie Ernaux") is [awarded](https://wikipedia.org/wiki/2022_Nobel_Prize_in_Literature "2022 Nobel Prize in Literature") the [Nobel Prize in Literature](https://wikipedia.org/wiki/Nobel_Prize_in_Literature "Nobel Prize in Literature"). 
 
-## Year - 2000
- [Mass demonstrations](https://wikipedia.org/wiki/Overthrow_of_Slobodan_Milo%C5%A1evi%C4%87 "Overthrow of Slobodan Milošević") in [Serbia](https://wikipedia.org/wiki/Serbia "Serbia") force the resignation of [Slobodan Milošević](https://wikipedia.org/wiki/Slobodan_Milo%C5%A1evi%C4%87 "Slobodan Milošević").
+## Year - 2018
+ The [United States Senate](https://wikipedia.org/wiki/United_States_Senate "United States Senate") confirms [Brett Kavanaugh](https://wikipedia.org/wiki/Brett_Kavanaugh "Brett Kavanaugh") as a [Supreme Court Associate Justice](https://wikipedia.org/wiki/Associate_Justice_of_the_Supreme_Court_of_the_United_States "Associate Justice of the Supreme Court of the United States"), ending a [contentious confirmation process](https://wikipedia.org/wiki/Brett_Kavanaugh_Supreme_Court_nomination "Brett Kavanaugh Supreme Court nomination").
 
-## Year - 1999
- The [Ladbroke Grove rail crash](https://wikipedia.org/wiki/Ladbroke_Grove_rail_crash "Ladbroke Grove rail crash") in [West London](https://wikipedia.org/wiki/West_London "West London") kills 31 people.
+## Year - 2010
+ [Instagram](https://wikipedia.org/wiki/Instagram "Instagram"), a mainstream photo-sharing application, is founded.
 
-## Year - 1994
- Swiss police find the bodies of 48 members of the [Order of the Solar Temple](https://wikipedia.org/wiki/Order_of_the_Solar_Temple "Order of the Solar Temple"), who had died in a [cult mass murder-suicide](https://wikipedia.org/wiki/1994_Solar_Temple_massacres "1994 Solar Temple massacres").
+## Year - 2007
+ [Jason Lewis](https://wikipedia.org/wiki/Jason_Lewis_(adventurer) "Jason Lewis (adventurer)") completes the first human-powered circumnavigation of the Earth.
 
-## Year - 1991
- An [Indonesian Air Force C-130 crash](https://wikipedia.org/wiki/1991_Jakarta_Indonesian_Air_Force_C-130_crash "1991 Jakarta Indonesian Air Force C-130 crash") kills 135 people.
+## Year - 1995
+ The first planet orbiting another sun, [51 Pegasi b](https://wikipedia.org/wiki/51_Pegasi_b "51 Pegasi b"), is discovered.
 
 ## Year - 1990
- After 150 years <i>[The Herald](https://wikipedia.org/wiki/The_Herald_(Melbourne) "The Herald (Melbourne)")</i> newspaper in [Melbourne](https://wikipedia.org/wiki/Melbourne "Melbourne"), [Australia](https://wikipedia.org/wiki/Australia "Australia"), is published for the last time as a separate newspaper.
+ [Space Shuttle <i>Discovery</i>](https://wikipedia.org/wiki/Space_Shuttle_Discovery "Space Shuttle Discovery") is launched on [STS-41](https://wikipedia.org/wiki/STS-41 "STS-41"), and deploys the [<i>Ulysses</i>](https://wikipedia.org/wiki/Ulysses_(spacecraft) "Ulysses (spacecraft)") space probe to study the [Sun](https://wikipedia.org/wiki/Sun "Sun")'s polar regions.
 
-## Year - 1988
- A Chilean opposition coalition defeats [Augusto Pinochet](https://wikipedia.org/wiki/Augusto_Pinochet "Augusto Pinochet") in [his re-election attempt](https://wikipedia.org/wiki/1988_Chilean_national_plebiscite "1988 Chilean national plebiscite").
+## Year - 1987
+ [Fiji](https://wikipedia.org/wiki/Fiji "Fiji") becomes a republic.
 
-## Year - 1986
- [Mordechai Vanunu](https://wikipedia.org/wiki/Mordechai_Vanunu "Mordechai Vanunu")'s story in <i>[The Sunday Times](https://wikipedia.org/wiki/The_Sunday_Times "The Sunday Times")</i> reveals Israel's secret nuclear weapons.
+## Year - 1985
+ Police constable [Keith Blakelock is murdered](https://wikipedia.org/wiki/Murder_of_Keith_Blakelock "Murder of Keith Blakelock") as riots erupt in the Broadwater Farm suburb of London.
 
-## Year - 1984
- [Marc Garneau](https://wikipedia.org/wiki/Marc_Garneau "Marc Garneau") becomes the first Canadian in space.
+## Year - 1981
+ [NLM CityHopper Flight 431](https://wikipedia.org/wiki/NLM_CityHopper_Flight_431 "NLM CityHopper Flight 431") crashes in [Moerdijk](https://wikipedia.org/wiki/Moerdijk "Moerdijk") after taking off from [Rotterdam The Hague Airport](https://wikipedia.org/wiki/Rotterdam_The_Hague_Airport "Rotterdam The Hague Airport") in the Netherlands, killing all 17 people on board.
 
-## Year - 1982
- [Tylenol](https://wikipedia.org/wiki/Tylenol_(brand) "Tylenol (brand)") products are recalled after [bottles in Chicago](https://wikipedia.org/wiki/Chicago_Tylenol_murders "Chicago Tylenol murders") laced with cyanide cause seven deaths.
+## Year - 1981
+ Egyptian President [Anwar Sadat](https://wikipedia.org/wiki/Anwar_Sadat "Anwar Sadat") is [murdered](https://wikipedia.org/wiki/Assassination_of_Anwar_Sadat "Assassination of Anwar Sadat") by Islamic extremists.
 
-## Year - 1974
- Bombs planted by the [PIRA](https://wikipedia.org/wiki/Provisional_Irish_Republican_Army "Provisional Irish Republican Army") in pubs in [Guildford](https://wikipedia.org/wiki/Guildford "Guildford") [kill](https://wikipedia.org/wiki/Guildford_pub_bombings "Guildford pub bombings") four British soldiers and one civilian.
+## Year - 1979
+ [Pope John Paul II](https://wikipedia.org/wiki/Pope_John_Paul_II "Pope John Paul II") becomes the first pontiff to visit the [White House](https://wikipedia.org/wiki/White_House "White House").
 
-## Year - 1970
- The British Trade Commissioner, [James Cross](https://wikipedia.org/wiki/James_Cross "James Cross"), is kidnapped by members of the [Front de libération du Québec](https://wikipedia.org/wiki/Front_de_lib%C3%A9ration_du_Qu%C3%A9bec "Front de libération du Québec"), triggering the [October Crisis](https://wikipedia.org/wiki/October_Crisis "October Crisis") in Canada.
+## Year - 1977
+ The first prototype of the [Mikoyan MiG-29](https://wikipedia.org/wiki/Mikoyan_MiG-29 "Mikoyan MiG-29"), designated 9-01, makes its maiden flight.
 
-## Year - 1970
- The [Public Broadcasting Service](https://wikipedia.org/wiki/Public_Broadcasting_Service "Public Broadcasting Service") (PBS) is founded.
+## Year - 1976
+ Dozens are killed by Thai police and right-wing paramilitaries in the [Thammasat University massacre](https://wikipedia.org/wiki/6_October_1976_massacre "6 October 1976 massacre"); afterwards, the [Seni Pramoj](https://wikipedia.org/wiki/Seni_Pramoj "Seni Pramoj") government is toppled in a military coup led by [Sangad Chaloryu](https://wikipedia.org/wiki/Sangad_Chaloryu "Sangad Chaloryu").
 
-## Year - 1968
- A [Northern Ireland Civil Rights Association](https://wikipedia.org/wiki/Northern_Ireland_Civil_Rights_Association "Northern Ireland Civil Rights Association") march in Derry is violently suppressed by police.
+## Year - 1976
+ Premier [Hua Guofeng](https://wikipedia.org/wiki/Hua_Guofeng "Hua Guofeng") arrests the [Gang of Four](https://wikipedia.org/wiki/Gang_of_Four "Gang of Four"), ending the [Cultural Revolution](https://wikipedia.org/wiki/Cultural_Revolution "Cultural Revolution") in China.
 
-## Year - 1966
- A reactor at the [Enrico Fermi Nuclear Generating Station](https://wikipedia.org/wiki/Enrico_Fermi_Nuclear_Generating_Station "Enrico Fermi Nuclear Generating Station") near Detroit suffers a partial meltdown.
+## Year - 1976
+ [Cubana de Aviación Flight 455](https://wikipedia.org/wiki/Cubana_de_Aviaci%C3%B3n_Flight_455 "Cubana de Aviación Flight 455") is destroyed by two bombs, placed on board by an anti-Castro militant group.
 
-## Year - 1963
- The United States suspends the [Commercial Import Program](https://wikipedia.org/wiki/Commercial_Import_Program "Commercial Import Program") in response to [repression of the Buddhist majority](https://wikipedia.org/wiki/Buddhist_crisis "Buddhist crisis") by the regime of President Ngo Dinh Diem.
-
-## Year - 1962
- The first [Beatles](https://wikipedia.org/wiki/Beatles "Beatles") single "[Love Me Do](https://wikipedia.org/wiki/Love_Me_Do "Love Me Do")" is released in Britain.
-
-## Year - 1962
- The first of the [James Bond](https://wikipedia.org/wiki/James_Bond "James Bond") film series, based on the novels by [Ian Fleming](https://wikipedia.org/wiki/Ian_Fleming "Ian Fleming"), <i>[Dr. No](https://wikipedia.org/wiki/Dr._No_(film) "Dr. No (film)")</i>, is released in Britain.
-
-## Year - 1947
- President Truman makes the first televised [Oval Office address](https://wikipedia.org/wiki/Oval_Office_address "Oval Office address").
-
-## Year - 1945
- A six-month strike by Hollywood set decorators turns into a [bloody riot](https://wikipedia.org/wiki/Hollywood_Black_Friday "Hollywood Black Friday") at the gates of the Warner Brothers studio.
+## Year - 1973
+ Egypt and Syria launch coordinated [attacks](https://wikipedia.org/wiki/Operation_Badr_(1973) "Operation Badr (1973)") against Israel, beginning the [Yom Kippur War](https://wikipedia.org/wiki/Yom_Kippur_War "Yom Kippur War").
 
 ## Year - 1944
- The [Provisional Government of the French Republic](https://wikipedia.org/wiki/Provisional_Government_of_the_French_Republic "Provisional Government of the French Republic") enfranchises women.
+ World War II: Units of the [1st Czechoslovak Army Corps](https://wikipedia.org/wiki/1st_Czechoslovak_Army_Corps_in_the_Soviet_Union "1st Czechoslovak Army Corps in the Soviet Union") enter [Czechoslovakia](https://wikipedia.org/wiki/Czechoslovakia "Czechoslovakia") during the [Battle of the Dukla Pass](https://wikipedia.org/wiki/Battle_of_the_Dukla_Pass "Battle of the Dukla Pass").
 
 ## Year - 1943
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Battle of the Pacific](https://wikipedia.org/wiki/Battle_of_the_Pacific "Battle of the Pacific"): Ninety-eight American POWs are executed by Japanese forces on [Wake Island](https://wikipedia.org/wiki/Wake_Island "Wake Island").
+ World War II: Thirteen civilians are [burnt alive](https://wikipedia.org/wiki/Burnings_of_Kali_Sykia "Burnings of Kali Sykia") by a paramilitary group in Crete during the [Nazi occupation of Greece](https://wikipedia.org/wiki/Axis_occupation_of_Greece "Axis occupation of Greece").
 
-## Year - 1938
- [Holocaust](https://wikipedia.org/wiki/Holocaust "Holocaust"): In Nazi Germany, Jews' [passports are invalidated](https://wikipedia.org/wiki/Nuremberg_Laws "Nuremberg Laws").
+## Year - 1942
+ World War II: American troops [force the Japanese from their positions](https://wikipedia.org/wiki/Actions_along_the_Matanikau "Actions along the Matanikau") east of the Matanikau River during the [Battle of Guadalcanal](https://wikipedia.org/wiki/Guadalcanal_campaign "Guadalcanal campaign").
 
-## Year - 1936
- The [Jarrow March](https://wikipedia.org/wiki/Jarrow_March "Jarrow March") sets off for [London](https://wikipedia.org/wiki/London "London").
+## Year - 1939
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Battle of Kock](https://wikipedia.org/wiki/Battle_of_Kock_(1939) "Battle of Kock (1939)") is the final combat of the [September Campaign](https://wikipedia.org/wiki/Invasion_of_Poland "Invasion of Poland") in Poland.
 
-## Year - 1931
- [Clyde Edward Pangborn](https://wikipedia.org/wiki/Clyde_Edward_Pangborn "Clyde Edward Pangborn") and Hugh Herndon,Jr. make the first nonstop flight across the Pacific Ocean in the plane <i>[Miss Veedol](https://wikipedia.org/wiki/Miss_Veedol "Miss Veedol")</i>.
+## Year - 1927
+ Opening of <i>[The Jazz Singer](https://wikipedia.org/wiki/The_Jazz_Singer "The Jazz Singer")</i>, the first prominent "talkie" movie.
 
-## Year - 1930
- British airship [R101](https://wikipedia.org/wiki/R101 "R101") crashes in France <i>en route</i> to India on its maiden voyage killing 48 people.
+## Year - 1923
+ The [Turkish National Movement](https://wikipedia.org/wiki/Turkish_National_Movement "Turkish National Movement") enters [Constantinople](https://wikipedia.org/wiki/Constantinople "Constantinople").
 
-## Year - 1921
- The [World Series](https://wikipedia.org/wiki/1921_World_Series "1921 World Series") is the first to be broadcast on radio.
+## Year - 1920
+ [Ukrainian War of Independence](https://wikipedia.org/wiki/Ukrainian_War_of_Independence "Ukrainian War of Independence"): The [Starobilsk agreement](https://wikipedia.org/wiki/Starobilsk_agreement "Starobilsk agreement") is signed by representatives of the [Ukrainian Soviet Socialist Republic](https://wikipedia.org/wiki/Ukrainian_Soviet_Socialist_Republic "Ukrainian Soviet Socialist Republic") and the [Makhnovshchina](https://wikipedia.org/wiki/Makhnovshchina "Makhnovshchina").
 
-## Year - 1914
- [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): An aircraft successfully [destroys another aircraft](https://wikipedia.org/wiki/Fighter_aircraft "Fighter aircraft") with gunfire for the first time.
+## Year - 1915
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): [Entente](https://wikipedia.org/wiki/Allies_of_World_War_I "Allies of World War I") forces land in [Thessaloniki](https://wikipedia.org/wiki/Thessaloniki "Thessaloniki"), to open the [Macedonian front](https://wikipedia.org/wiki/Macedonian_front "Macedonian front") against the Central Powers.
 
-## Year - 1911
- The [Kowloon-Canton Railway](https://wikipedia.org/wiki/Kowloon%E2%80%93Canton_Railway "Kowloon-Canton Railway") commences service.
+## Year - 1915
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): Combined Austro-Hungarian and German [Central Powers](https://wikipedia.org/wiki/Central_Powers "Central Powers"), reinforced by the recently joined [Bulgaria](https://wikipedia.org/wiki/Kingdom_of_Bulgaria "Kingdom of Bulgaria") launched a new offensive against [Serbia](https://wikipedia.org/wiki/Kingdom_of_Serbia "Kingdom of Serbia") under command of [August von Mackensen](https://wikipedia.org/wiki/August_von_Mackensen "August von Mackensen") .
 
 ## Year - 1910
- In a [revolution](https://wikipedia.org/wiki/5_October_1910_revolution "5 October 1910 revolution") in Portugal the monarchy is overthrown and a republic is declared.
+ [Eleftherios Venizelos](https://wikipedia.org/wiki/Eleftherios_Venizelos "Eleftherios Venizelos") is elected [Prime Minister of Greece](https://wikipedia.org/wiki/Prime_Minister_of_Greece "Prime Minister of Greece") for the first of seven times.
 
-## Year - 1905
- The [Wright brothers](https://wikipedia.org/wiki/Wright_brothers "Wright brothers") pilot the [Wright Flyer III](https://wikipedia.org/wiki/Wright_Flyer_III "Wright Flyer III") in a new world record flight of 24 miles in 39 minutes.
+## Year - 1908
+ The [Bosnian crisis](https://wikipedia.org/wiki/Bosnian_crisis "Bosnian crisis") erupts when [Austria-Hungary](https://wikipedia.org/wiki/Austria-Hungary "Austria-Hungary") formally annexes [Bosnia and Herzegovina](https://wikipedia.org/wiki/Austro-Hungarian_rule_in_Bosnia_and_Herzegovina "Austro-Hungarian rule in Bosnia and Herzegovina").
 
-## Year - 1900
- Peace congress in Paris condemns British policy in South Africa and asserts [Boer Republic](https://wikipedia.org/wiki/South_African_Republic "South African Republic")'s right to self-determination.
+## Year - 1903
+ The [High Court of Australia](https://wikipedia.org/wiki/High_Court_of_Australia "High Court of Australia") sits for the first time.
 
-## Year - 1877
- The [Nez Perce War](https://wikipedia.org/wiki/Nez_Perce_War "Nez Perce War") in the northwestern United States comes to an end.
+## Year - 1898
+ [Phi Mu Alpha Sinfonia](https://wikipedia.org/wiki/Phi_Mu_Alpha_Sinfonia "Phi Mu Alpha Sinfonia"), the largest American music fraternity, is founded at the [New England Conservatory of Music](https://wikipedia.org/wiki/New_England_Conservatory_of_Music "New England Conservatory of Music").
 
-## Year - 1869
- The [Eastman tunnel](https://wikipedia.org/wiki/Eastman_tunnel "Eastman tunnel"), in Minnesota, United States, collapses during construction, causing a landslide that nearly destroys St. Anthony Falls.
+## Year - 1884
+ The [Naval War College](https://wikipedia.org/wiki/Naval_War_College "Naval War College") of the United States is founded in [Rhode Island](https://wikipedia.org/wiki/Rhode_Island "Rhode Island").
 
-## Year - 1869
- The [Saxby Gale](https://wikipedia.org/wiki/Saxby_Gale "Saxby Gale") devastates the Bay of Fundy region in Canada.
+## Year - 1854
+ In England the [Great fire of Newcastle and Gateshead](https://wikipedia.org/wiki/Great_fire_of_Newcastle_and_Gateshead "Great fire of Newcastle and Gateshead") leads to 53 deaths and hundreds injured.
 
-## Year - 1838
- The [Killough massacre](https://wikipedia.org/wiki/Killough_massacre "Killough massacre") in east Texas sees eighteen Texian settlers either killed or kidnapped.
+## Year - 1849
+ The execution of [the 13 Martyrs of Arad](https://wikipedia.org/wiki/The_13_Martyrs_of_Arad "The 13 Martyrs of Arad") after the Hungarian war of independence.
 
-## Year - 1813
- [War of 1812](https://wikipedia.org/wiki/War_of_1812 "War of 1812"): The Army of the Northwest [defeats](https://wikipedia.org/wiki/Battle_of_the_Thames "Battle of the Thames") a British and Native Canadian force threatening Detroit.
+## Year - 1810
+ A large fire destroys a third of all the buildings in the town of [Raahe](https://wikipedia.org/wiki/Raahe "Raahe") in the [Grand Duchy of Finland](https://wikipedia.org/wiki/Grand_Duchy_of_Finland "Grand Duchy of Finland").
 
 ## Year - 1789
- French Revolution: The [Women's March on Versailles](https://wikipedia.org/wiki/Women%27s_March_on_Versailles "Women's March on Versailles") effectively terminates royal authority.
+ [French Revolution](https://wikipedia.org/wiki/French_Revolution "French Revolution"): King [Louis XVI](https://wikipedia.org/wiki/Louis_XVI_of_France "Louis XVI of France") is forced to change his residence from [Versailles](https://wikipedia.org/wiki/Versailles "Versailles") to the [Tuileries Palace](https://wikipedia.org/wiki/Tuileries_Palace "Tuileries Palace").
 
-## Year - 1607
- Assassins attempt to kill Venetian statesman and scientist [Paolo Sarpi](https://wikipedia.org/wiki/Paolo_Sarpi "Paolo Sarpi").
+## Year - 1777
+ [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): British forces [capture Forts Clinton and Montgomery](https://wikipedia.org/wiki/Battle_of_Forts_Clinton_and_Montgomery "Battle of Forts Clinton and Montgomery") on the Hudson River.
 
-## Year - 1450
- [Louis IX, Duke of Bavaria](https://wikipedia.org/wiki/Louis_IX,_Duke_of_Bavaria "Louis IX, Duke of Bavaria") expels Jews from his jurisdiction.
+## Year - 1762
+ [Seven Years' War](https://wikipedia.org/wiki/Seven_Years%27_War "Seven Years' War"): The British [capture Manila](https://wikipedia.org/wiki/Battle_of_Manila_(1762) "Battle of Manila (1762)") from Spain and occupy it.
 
-## Year - 1143
- With the signing of the [Treaty of Zamora](https://wikipedia.org/wiki/Treaty_of_Zamora "Treaty of Zamora"), King [Alfonso VII of León and Castile](https://wikipedia.org/wiki/Alfonso_VII_of_Le%C3%B3n_and_Castile "Alfonso VII of León and Castile") recognises Portugal as a Kingdom.
+## Year - 1683
+ Immigrant families found [Germantown, Pennsylvania](https://wikipedia.org/wiki/Germantown,_Philadelphia "Germantown, Philadelphia") in the first major immigration of [German people to America](https://wikipedia.org/wiki/German_Americans "German Americans").
 
-## Year - 869
-The [Fourth Council of Constantinople](https://wikipedia.org/wiki/Fourth_Council_of_Constantinople_(Roman_Catholic) "Fourth Council of Constantinople (Roman Catholic)") is convened to depose patriarch Photios I.
+## Year - 1600
+ <i>[Euridice](https://wikipedia.org/wiki/Euridice_(Peri) "Euridice (Peri)")</i>, the earliest surviving opera, receives its première performance, beginning the [Baroque period](https://wikipedia.org/wiki/Baroque "Baroque").
 
-## Year - 816
-King [Louis the Pious](https://wikipedia.org/wiki/Louis_the_Pious "Louis the Pious") is crowned emperor of the Holy Roman Empire by the Pope.
+## Year - 1539
+ Spain's [DeSoto expedition](https://wikipedia.org/wiki/De_Soto_Expedition "De Soto Expedition") takes over the Apalachee capital of [Anhaica](https://wikipedia.org/wiki/Anhaica "Anhaica") for their winter quarters.
 
-## Year - 610
-[Heraclius](https://wikipedia.org/wiki/Heraclius "Heraclius") arrives at Constantinople, kills Byzantine Emperor Phocas, and becomes emperor.
+## Year - 618
+[Transition from Sui to Tang](https://wikipedia.org/wiki/Transition_from_Sui_to_Tang "Transition from Sui to Tang"): [Wang Shichong](https://wikipedia.org/wiki/Wang_Shichong "Wang Shichong") decisively defeats [Li Mi](https://wikipedia.org/wiki/Li_Mi_(Sui_dynasty) "Li Mi (Sui dynasty)") at the [Battle of Yanshi](https://wikipedia.org/wiki/Battle_of_Yanshi "Battle of Yanshi").
+
+## Year - 404
+[Byzantine](https://wikipedia.org/wiki/Byzantine_Empire "Byzantine Empire") Empress [Eudoxia](https://wikipedia.org/wiki/Aelia_Eudoxia "Aelia Eudoxia") dies from the miscarriage of her seventh pregnancy.
+
+## Year - 23
+D 23 - Rebels decapitate [Wang Mang](https://wikipedia.org/wiki/Wang_Mang "Wang Mang") two days after his capital was sacked during a [peasant rebellion](https://wikipedia.org/wiki/Lulin "Lulin").
+
+## Year - 69 BC
+- 69 BC - [Third Mithridatic War](https://wikipedia.org/wiki/Third_Mithridatic_War "Third Mithridatic War"): The [military](https://wikipedia.org/wiki/Roman_army_of_the_late_Republic "Roman army of the late Republic") of the [Roman Republic](https://wikipedia.org/wiki/Roman_Republic "Roman Republic") [subdue Armenia](https://wikipedia.org/wiki/Battle_of_Tigranocerta "Battle of Tigranocerta").
+
+## Year - 105 BC
+ - 105 BC - [Cimbrian War](https://wikipedia.org/wiki/Cimbrian_War "Cimbrian War"): Defeat at the [Battle of Arausio](https://wikipedia.org/wiki/Battle_of_Arausio "Battle of Arausio") of the [Roman army of the mid-Republic](https://wikipedia.org/wiki/Roman_army_of_the_mid-Republic "Roman army of the mid-Republic")
 
 <br />
 
-> _Last Updated: 10/5/2024, 2:38:24 PM (in GMT)_
+> _Last Updated: 10/6/2024, 3:06:19 AM (in GMT)_
