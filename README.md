@@ -168,4 +168,4 @@ C - 3761 BC - The epoch reference date (start) of the modern [Hebrew calendar](h
 
 <br />
 
-> _Last Updated: 10/7/2024, 3:05:04 AM (in GMT)_
+> _Last Updated: 10/7/2024, 2:41:47 PM (in GMT)_
