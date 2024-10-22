@@ -1,171 +1,172 @@
 
 # Today's History 📜
 
-21st October 2024
+22nd October 2024
 
-
-## Year - 2021
- A [shooting](https://wikipedia.org/wiki/Rust_shooting_incident "Rust shooting incident") occurs on the set of the film <i>[Rust](https://wikipedia.org/wiki/Rust_(upcoming_film) "Rust (upcoming film)")</i>, in which actor [Alec Baldwin](https://wikipedia.org/wiki/Alec_Baldwin "Alec Baldwin") discharged a prop weapon which had been loaded, killing the director of photography, [Halyna Hutchins](https://wikipedia.org/wiki/Halyna_Hutchins "Halyna Hutchins"), and injuring director [Joel Souza](https://wikipedia.org/wiki/Joel_Souza "Joel Souza").
 
 ## Year - 2019
- In [Canada](https://wikipedia.org/wiki/Canada "Canada"), the [2019 Canadian federal election](https://wikipedia.org/wiki/2019_Canadian_federal_election "2019 Canadian federal election") ends, resulting in incumbent Prime Minister [Justin Trudeau](https://wikipedia.org/wiki/Justin_Trudeau "Justin Trudeau") remaining in office, albeit with the [Liberal Party](https://wikipedia.org/wiki/Liberal_Party_of_Canada "Liberal Party of Canada") in a [minority government](https://wikipedia.org/wiki/Minority_government "Minority government").
+ [Same-sex marriage](https://wikipedia.org/wiki/Same-sex_marriage "Same-sex marriage") is legalised, and [abortion](https://wikipedia.org/wiki/Abortion "Abortion") is decriminalised in [Northern Ireland](https://wikipedia.org/wiki/Northern_Ireland "Northern Ireland") as a result of the [Northern Ireland Assembly](https://wikipedia.org/wiki/Northern_Ireland_Assembly "Northern Ireland Assembly") not being restored.
 
-## Year - 2019
- Thirty people are killed in a fiery bus crash in western [Democratic Republic of the Congo](https://wikipedia.org/wiki/Democratic_Republic_of_the_Congo "Democratic Republic of the Congo").
+## Year - 2014
+ Michael Zehaf-Bibeau [attacks](https://wikipedia.org/wiki/2014_shootings_at_Parliament_Hill,_Ottawa "2014 shootings at Parliament Hill, Ottawa") the Parliament of Canada, killing a soldier and injuring three other people.
 
-## Year - 2011
- [Iraq War](https://wikipedia.org/wiki/Iraq_War "Iraq War"): President [Barack Obama](https://wikipedia.org/wiki/Barack_Obama "Barack Obama") announces that the [withdrawal of United States troops from Iraq](https://wikipedia.org/wiki/Withdrawal_of_United_States_troops_from_Iraq_(2007%E2%80%932011) "Withdrawal of United States troops from Iraq (2007-2011)") will be complete by the end of the year.
+## Year - 2013
+ The Australian Capital Territory becomes the first Australian jurisdiction to legalize same-sex marriage with the [Marriage Equality (Same Sex) Act 2013](https://wikipedia.org/wiki/Marriage_Equality_(Same_Sex)_Act_2013 "Marriage Equality (Same Sex) Act 2013").
+
+## Year - 2012
+ Cyclist [Lance Armstrong](https://wikipedia.org/wiki/Lance_Armstrong "Lance Armstrong") is formally stripped of his seven [Tour de France](https://wikipedia.org/wiki/Tour_de_France "Tour de France") titles after being charged for doping.
+
+## Year - 2008
+ India launches its first uncrewed lunar mission [Chandrayaan-1](https://wikipedia.org/wiki/Chandrayaan-1 "Chandrayaan-1").
+
+## Year - 2007
+ A [raid on Anuradhapura Air Force Base](https://wikipedia.org/wiki/Raid_on_Anuradhapura_Air_Force_Base "Raid on Anuradhapura Air Force Base") is carried out by 21 Tamil Tiger commandos, with all except one dying in this attack. Eight Sri Lanka Air Force planes are destroyed and ten damaged.
+
+## Year - 2006
+ A Panama Canal expansion proposal is approved by 77.8% of voters in a [national referendum](https://wikipedia.org/wiki/Panama_Canal_expansion_referendum,_2006 "Panama Canal expansion referendum, 2006").
 
 ## Year - 2005
- Images of the dwarf planet [Eris](https://wikipedia.org/wiki/136199_Eris "136199 Eris") are taken and subsequently used in documenting its discovery.
+ [Bellview Airlines Flight 210](https://wikipedia.org/wiki/Bellview_Airlines_Flight_210 "Bellview Airlines Flight 210") crashes in Nigeria, killing all 117 people on board.
 
-## Year - 1994
- In Seoul, South Korea, 32 people are killed when a span of the [Seongsu Bridge collapses](https://wikipedia.org/wiki/Seongsu_Bridge_disaster "Seongsu Bridge disaster").
+## Year - 2005
+ [Tropical Storm Alpha](https://wikipedia.org/wiki/Tropical_Storm_Alpha_(2005) "Tropical Storm Alpha (2005)") forms in the Atlantic Basin, making the 2005 Atlantic hurricane season the most active Atlantic hurricane season until surpassed by the 2020 season.
 
-## Year - 1994
- North Korea and the United States sign an [Agreed Framework](https://wikipedia.org/wiki/Agreed_Framework "Agreed Framework") that requires North Korea to stop its nuclear weapons program and agree to inspections.
+## Year - 1999
+ [Maurice Papon](https://wikipedia.org/wiki/Maurice_Papon "Maurice Papon"), an official in the [Vichy](https://wikipedia.org/wiki/Vichy_France "Vichy France") government during World War II, is jailed for crimes against humanity.
 
-## Year - 1989
- In [Honduras](https://wikipedia.org/wiki/Honduras "Honduras"), 131 people are killed when a [Boeing 727](https://wikipedia.org/wiki/Boeing_727 "Boeing 727") [crashes](https://wikipedia.org/wiki/Tan-Sahsa_Flight_414 "Tan-Sahsa Flight 414") on approach to [Toncontín International Airport](https://wikipedia.org/wiki/Toncont%C3%ADn_International_Airport "Toncontín International Airport") near the nation's capital [Tegucigalpa](https://wikipedia.org/wiki/Tegucigalpa "Tegucigalpa").
+## Year - 1997
+ Danish fugitive [Steen Christensen](https://wikipedia.org/wiki/Steen_Christensen "Steen Christensen") kills two police officers, Chief Constable Eero Holsti and Senior Constable Antero Palo, in [Ullanlinna](https://wikipedia.org/wiki/Ullanlinna "Ullanlinna"), [Helsinki](https://wikipedia.org/wiki/Helsinki "Helsinki"), [Finland](https://wikipedia.org/wiki/Finland "Finland") during his prison escape.
 
 ## Year - 1987
- The [Jaffna hospital massacre](https://wikipedia.org/wiki/Jaffna_hospital_massacre "Jaffna hospital massacre") is carried out by Indian peacekeeping forces in Sri Lanka, killing 70 Tamil patients, doctors and nurses.
-
-## Year - 1986
- In Lebanon, pro-Iran kidnappers claim to have [abducted](https://wikipedia.org/wiki/Lebanon_hostage_crisis "Lebanon hostage crisis") American writer Edward Tracy (he is released in August 1991).
-
-## Year - 1984
- [Niki Lauda](https://wikipedia.org/wiki/Niki_Lauda "Niki Lauda") claims his third and final [Formula One](https://wikipedia.org/wiki/Formula_One "Formula One") [Drivers' Championship Title](https://wikipedia.org/wiki/List_of_Formula_One_World_Drivers%27_Champions "List of Formula One World Drivers' Champions") by half a point ahead of [McLaren](https://wikipedia.org/wiki/McLaren "McLaren") team-mate [Alain Prost](https://wikipedia.org/wiki/Alain_Prost "Alain Prost") at the [Portuguese Grand Prix](https://wikipedia.org/wiki/1984_Portuguese_Grand_Prix "1984 Portuguese Grand Prix").
+ [John Adams'](https://wikipedia.org/wiki/John_Adams_(composer) "John Adams (composer)") opera <i>[Nixon in China](https://wikipedia.org/wiki/Nixon_in_China "Nixon in China")</i> premiered.
 
 ## Year - 1983
- The [metre](https://wikipedia.org/wiki/Metre "Metre") is defined as the distance light travels in a vacuum in 1/299,792,458 of a second.
+ Two correctional officers are killed by inmates at the United States Penitentiary in Marion, Illinois. The incident inspires the [Supermax](https://wikipedia.org/wiki/Supermax "Supermax") model of prisons.
 
 ## Year - 1981
- [Andreas Papandreou](https://wikipedia.org/wiki/Andreas_Papandreou "Andreas Papandreou") becomes Prime Minister of Greece, ending an almost 50-year-long system of power dominated by conservative forces.
+ The United States Federal Labor Relations Authority votes to decertify the [Professional Air Traffic Controllers Organization](https://wikipedia.org/wiki/Professional_Air_Traffic_Controllers_Organization_(1968) "Professional Air Traffic Controllers Organization (1968)") (PATCO) for its strike the previous August.
 
-## Year - 1979
- [Moshe Dayan](https://wikipedia.org/wiki/Moshe_Dayan "Moshe Dayan") resigns from the Israeli government because of strong disagreements with Prime Minister [Menachem Begin](https://wikipedia.org/wiki/Menachem_Begin "Menachem Begin") over policy towards the Arabs.
+## Year - 1976
+ [Red Dye No. 4](https://wikipedia.org/wiki/Scarlet_GN "Scarlet GN") is banned by the US Food and Drug Administration after it is discovered that it causes tumors in the bladders of dogs.
 
-## Year - 1978
- Australian civilian pilot [Frederick Valentich vanishes](https://wikipedia.org/wiki/Disappearance_of_Frederick_Valentich "Disappearance of Frederick Valentich") over the [Bass Strait](https://wikipedia.org/wiki/Bass_Strait "Bass Strait") south of [Melbourne](https://wikipedia.org/wiki/Melbourne "Melbourne"), after reporting contact with an unidentified aircraft.
+## Year - 1975
+ The Soviet uncrewed space mission [Venera 9](https://wikipedia.org/wiki/Venera_9 "Venera 9") lands on Venus.
 
-## Year - 1973
- [Fred Dryer](https://wikipedia.org/wiki/Fred_Dryer "Fred Dryer") of the Los Angeles Rams becomes the first player in NFL history to score two safeties in the same game.
+## Year - 1964
+ An all-party Parliamentary Committee selects the design which will become the new official [flag of Canada](https://wikipedia.org/wiki/Flag_of_Canada "Flag of Canada").
 
-## Year - 1971
- A [gas explosion](https://wikipedia.org/wiki/Clarkston_explosion "Clarkston explosion") kills 22 people at a shopping centre near Glasgow, Scotland.
+## Year - 1964
+ [Jean-Paul Sartre](https://wikipedia.org/wiki/Jean-Paul_Sartre "Jean-Paul Sartre") is awarded the Nobel Prize in Literature, but turns down the honor.
 
-## Year - 1969
- The [1969 Somali coup d'état](https://wikipedia.org/wiki/1969_Somali_coup_d%27%C3%A9tat "1969 Somali coup d'état") establishes a Marxist-Leninist administration.
+## Year - 1963
+ A BAC One-Eleven prototype airliner [crashes in UK with the loss of all on board](https://wikipedia.org/wiki/1963_BAC_One-Eleven_test_crash "1963 BAC One-Eleven test crash").
 
-## Year - 1967
- The [National Mobilization Committee to End the War in Vietnam](https://wikipedia.org/wiki/National_Mobilization_Committee_to_End_the_War_in_Vietnam "National Mobilization Committee to End the War in Vietnam") organizes a march of fifty thousand people from the Lincoln Memorial to the Pentagon.
+## Year - 1962
+ [Cuban Missile Crisis](https://wikipedia.org/wiki/Cuban_Missile_Crisis "Cuban Missile Crisis"): President Kennedy, after internal counsel from Dwight D. Eisenhower, announces that American reconnaissance planes have discovered Soviet nuclear weapons in Cuba, and that he has ordered a naval "quarantine" of the Communist nation.
 
-## Year - 1966
- A colliery spoil tip [slips onto houses and a school in the village of Aberfan](https://wikipedia.org/wiki/Aberfan_disaster "Aberfan disaster") in Wales, killing 144 people, 116 of whom were schoolchildren.
+## Year - 1947
+ The [Kashmir conflict](https://wikipedia.org/wiki/Kashmir_conflict "Kashmir conflict") between India and Pakistan begins, having started just after the [partition of India](https://wikipedia.org/wiki/Partition_of_India "Partition of India").
 
-## Year - 1965
- [Comet Ikeya-Seki](https://wikipedia.org/wiki/Comet_Ikeya%E2%80%93Seki "Comet Ikeya-Seki") approaches perihelion, passing 450,000 kilometers (279,617 miles) from the sun.
-
-## Year - 1959
- President [Dwight D. Eisenhower](https://wikipedia.org/wiki/Dwight_D._Eisenhower "Dwight D. Eisenhower") approves the transfer of all [US Army](https://wikipedia.org/wiki/United_States_Army "United States Army") space-related activities to [NASA](https://wikipedia.org/wiki/NASA "NASA"), including most of the [Army Ballistic Missile Agency](https://wikipedia.org/wiki/Army_Ballistic_Missile_Agency "Army Ballistic Missile Agency").
-
-## Year - 1959
- In New York City, the [Solomon R. Guggenheim Museum](https://wikipedia.org/wiki/Solomon_R._Guggenheim_Museum "Solomon R. Guggenheim Museum") opens to the public.
-
-## Year - 1956
- The [Mau Mau Uprising](https://wikipedia.org/wiki/Mau_Mau_Uprising "Mau Mau Uprising") in Kenya is defeated.
-
-## Year - 1950
- Korean War: Heavy fighting begins between British and Australian forces and North Koreans during the [Battle of Yongju](https://wikipedia.org/wiki/Battle_of_Yongju "Battle of Yongju").
-
-## Year - 1945
- In the [1945 French legislative election](https://wikipedia.org/wiki/1945_French_legislative_election "1945 French legislative election") French women vote for the first time.
-
-## Year - 1944
- World War II: The city of [Aachen falls](https://wikipedia.org/wiki/Battle_of_Aachen "Battle of Aachen") to American forces after three weeks of fighting, the first German city to fall to the Allies.
-
-## Year - 1944
- World War II: The [Nemmersdorf massacre](https://wikipedia.org/wiki/Nemmersdorf_massacre "Nemmersdorf massacre") against German civilians takes place.
-
-## Year - 1944
- World War II: The first kamikaze attack damages [HMAS <i>Australia</i>](https://wikipedia.org/wiki/HMAS_Australia_(D84) "HMAS Australia (D84)") as the [Battle of Leyte Gulf](https://wikipedia.org/wiki/Battle_of_Leyte_Gulf "Battle of Leyte Gulf") begins.
+## Year - 1946
+ Over twenty-two hundred engineers and technicians from eastern Germany are forced to [relocate to the Soviet Union](https://wikipedia.org/wiki/Operation_Osoaviakhim "Operation Osoaviakhim"), along with their families and equipment.
 
 ## Year - 1943
- World War II: The [Provisional Government of Free India](https://wikipedia.org/wiki/Azad_Hind "Azad Hind") is formally established in [Japanese-occupied Singapore](https://wikipedia.org/wiki/Japanese_occupation_of_Singapore "Japanese occupation of Singapore").
+ World War II: In the second firestorm raid on Germany, the RAF [conducts an air raid](https://wikipedia.org/wiki/Bombing_of_Kassel_in_World_War_II "Bombing of Kassel in World War II") on the town of Kassel, killing 10,000 and rendering 150,000 homeless.
 
 ## Year - 1941
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Kragujevac massacre](https://wikipedia.org/wiki/Kragujevac_massacre "Kragujevac massacre") against Serbian men and boys takes place.
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): French resistance member [Guy Môquet](https://wikipedia.org/wiki/Guy_M%C3%B4quet "Guy Môquet") and 29 other hostages are executed by the Germans in retaliation for the death of a German officer.
 
-## Year - 1940
- The first edition of the [Ernest Hemingway](https://wikipedia.org/wiki/Ernest_Hemingway "Ernest Hemingway") novel <i>[For Whom the Bell Tolls](https://wikipedia.org/wiki/For_Whom_the_Bell_Tolls "For Whom the Bell Tolls")</i> is published.
+## Year - 1936
+ [Dod Orsborne](https://wikipedia.org/wiki/Dod_Orsborne "Dod Orsborne"), captain of the <i>[Girl Pat](https://wikipedia.org/wiki/Girl_Pat "Girl Pat")</i> is convicted of its theft and imprisoned, having caused a media sensation when it went missing.
 
-## Year - 1931
- A secret society in the [Imperial Japanese Army](https://wikipedia.org/wiki/Imperial_Japanese_Army "Imperial Japanese Army") launches an abortive [coup d'état attempt](https://wikipedia.org/wiki/October_incident "October incident").
+## Year - 1934
+ In [East Liverpool, Ohio](https://wikipedia.org/wiki/East_Liverpool,_Ohio "East Liverpool, Ohio"), FBI agents shoot and kill notorious bank robber [Pretty Boy Floyd](https://wikipedia.org/wiki/Pretty_Boy_Floyd "Pretty Boy Floyd").
 
-## Year - 1921
- President [Warren G. Harding](https://wikipedia.org/wiki/Warren_G._Harding "Warren G. Harding") delivers the first speech by a sitting U.S. president against [lynching](https://wikipedia.org/wiki/Lynching_in_the_United_States "Lynching in the United States") in the [Deep South](https://wikipedia.org/wiki/Deep_South "Deep South").
-
-## Year - 1912
- [First Balkan War](https://wikipedia.org/wiki/First_Balkan_War "First Balkan War"): The Greek navy [completes the capture](https://wikipedia.org/wiki/Battle_of_Lemnos_(1912) "Battle of Lemnos (1912)") of the island of [Lemnos](https://wikipedia.org/wiki/Lemnos "Lemnos") for use as a forward base against the [Dardanelles](https://wikipedia.org/wiki/Dardanelles "Dardanelles").
+## Year - 1923
+ The royalist [Leonardopoulos-Gargalidis coup d'état attempt](https://wikipedia.org/wiki/Leonardopoulos%E2%80%93Gargalidis_coup_d%27%C3%A9tat_attempt "Leonardopoulos-Gargalidis coup d'état attempt") fails in Greece, discrediting the monarchy and paving the way for the establishment of the Second Hellenic Republic.
 
 ## Year - 1910
- [HMS <i>Niobe</i>](https://wikipedia.org/wiki/HMS_Niobe_(1897) "HMS Niobe (1897)") arrives in [Halifax Harbour](https://wikipedia.org/wiki/Halifax_Harbour "Halifax Harbour") to become the first ship of the [Royal Canadian Navy](https://wikipedia.org/wiki/Royal_Canadian_Navy "Royal Canadian Navy").
+ [Hawley Harvey Crippen](https://wikipedia.org/wiki/Hawley_Harvey_Crippen "Hawley Harvey Crippen") (the first felon to be arrested with the help of radio) is convicted of poisoning his wife.
 
 ## Year - 1907
- The [1907 Qaratog earthquake](https://wikipedia.org/wiki/1907_Qaratog_earthquake "1907 Qaratog earthquake") hits the borders of Uzbekistan and Tajikistan, killing between 12,000 and 15,000 people.
+ A run on the stock of the [Knickerbocker Trust Company](https://wikipedia.org/wiki/Knickerbocker_Trust_Company "Knickerbocker Trust Company") sets events in motion that will spark the [Panic of 1907](https://wikipedia.org/wiki/Panic_of_1907 "Panic of 1907").
 
 ## Year - 1895
- The [capitulation of Tainan](https://wikipedia.org/wiki/Capitulation_of_Tainan "Capitulation of Tainan") completes the Japanese conquest of Taiwan.
+ In Paris an express train [derails](https://wikipedia.org/wiki/Montparnasse_derailment "Montparnasse derailment") after overrunning the buffer stop, crossing almost 30 metres (100 ft) of concourse before crashing through a wall and falling 10 metres (33 ft) to the road below.
 
-## Year - 1892
- Opening ceremonies for the [World's Columbian Exposition](https://wikipedia.org/wiki/World%27s_Columbian_Exposition "World's Columbian Exposition") are held in Chicago, though because construction was behind schedule, the exposition did not open until May 1, 1893.
+## Year - 1884
+ The [International Meridian Conference](https://wikipedia.org/wiki/International_Meridian_Conference "International Meridian Conference") designates the [Royal Observatory, Greenwich](https://wikipedia.org/wiki/Royal_Observatory,_Greenwich "Royal Observatory, Greenwich") as the world's prime meridian.
 
-## Year - 1888
- The [Swiss Social Democratic Party](https://wikipedia.org/wiki/Social_Democratic_Party_of_Switzerland "Social Democratic Party of Switzerland") is founded.
+## Year - 1883
+ The [Metropolitan Opera House](https://wikipedia.org/wiki/Metropolitan_Opera_House_(39th_Street) "Metropolitan Opera House (39th Street)") in New York City opens with a performance of Gounod's <i>Faust</i>.
 
 ## Year - 1879
- [Thomas Edison](https://wikipedia.org/wiki/Thomas_Edison "Thomas Edison") applies for a patent for his design for an [incandescent light bulb](https://wikipedia.org/wiki/Incandescent_light_bulb "Incandescent light bulb").
+ Using a filament of carbonized thread, Thomas Edison tests the first practical electric [incandescent light bulb](https://wikipedia.org/wiki/Incandescent_light_bulb "Incandescent light bulb") (lasting 13<style data-mw-deduplicate="TemplateStyles:r1154941027">.mw-parser-output .frac{white-space:nowrap}.mw-parser-output .frac .num,.mw-parser-output .frac .den{font-size:80%;line-height:0;vertical-align:super}.mw-parser-output .frac .den{vertical-align:sub}.mw-parser-output .sr-only{border:0;clip:rect(0,0,0,0);clip-path:polygon(0px 0px,0px 0px,0px 0px);height:1px;margin:-1px;overflow:hidden;padding:0;position:absolute;width:1px}</style>
+<span class="frac"><span class="num">1</span>⁄<span class="den">2</span></span> hours before burning out).
 
-## Year - 1867
- The [Medicine Lodge Treaty](https://wikipedia.org/wiki/Medicine_Lodge_Treaty "Medicine Lodge Treaty") is signed by southern [Great Plains Indian](https://wikipedia.org/wiki/Plains_Indians "Plains Indians") leaders. The treaty requires Native American Plains tribes to relocate to a reservation in the western [Indian Territory](https://wikipedia.org/wiki/Indian_Territory "Indian Territory").
+## Year - 1878
+ The [Bramall Lane](https://wikipedia.org/wiki/Bramall_Lane "Bramall Lane") stadium sees the first rugby match played under floodlights.
 
-## Year - 1861
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): Union forces under Colonel Edward Baker are [defeated](https://wikipedia.org/wiki/Battle_of_Ball%27s_Bluff "Battle of Ball's Bluff") by Confederate troops in the second major battle of the war.
+## Year - 1877
+ The [Blantyre mining disaster](https://wikipedia.org/wiki/Blantyre_mining_disaster "Blantyre mining disaster") in Scotland kills 207 miners.
 
-## Year - 1854
- [Florence Nightingale](https://wikipedia.org/wiki/Florence_Nightingale "Florence Nightingale") and a staff of 38 nurses are sent to the [Crimean War](https://wikipedia.org/wiki/Crimean_War "Crimean War").
+## Year - 1875
+ The first [telegraphic](https://wikipedia.org/wiki/Telegraph "Telegraph") connection in Argentina becomes operational.
 
-## Year - 1824
- [Portland cement](https://wikipedia.org/wiki/Portland_cement "Portland cement") is patented.
+## Year - 1866
+ A plebiscite ratifies the annexation of [Veneto](https://wikipedia.org/wiki/Veneto "Veneto") and [Mantua](https://wikipedia.org/wiki/Mantua "Mantua") to Italy, which had occurred three days before on October 19.
 
-## Year - 1805
- [Napoleonic Wars](https://wikipedia.org/wiki/Napoleonic_Wars "Napoleonic Wars"): A British fleet led by [Lord Nelson](https://wikipedia.org/wiki/Horatio_Nelson,_1st_Viscount_Nelson "Horatio Nelson, 1st Viscount Nelson") defeats a combined French and Spanish fleet under [Admiral Villeneuve](https://wikipedia.org/wiki/Pierre-Charles_Villeneuve "Pierre-Charles Villeneuve") in the [Battle of Trafalgar](https://wikipedia.org/wiki/Battle_of_Trafalgar "Battle of Trafalgar").
+## Year - 1859
+ Spain declares [war](https://wikipedia.org/wiki/Hispano-Moroccan_War_(1859%E2%80%9360) "Hispano-Moroccan War (1859-60)") on [Morocco](https://wikipedia.org/wiki/Morocco "Morocco").
+
+## Year - 1844
+ The Millerites (followers of [Baptist](https://wikipedia.org/wiki/Baptist "Baptist") preacher [William Miller](https://wikipedia.org/wiki/William_Miller_(preacher) "William Miller (preacher)")) anticipate the end of the world in conjunction with the Second Advent of Christ. The following day becomes known as the [Great Disappointment](https://wikipedia.org/wiki/Great_Disappointment "Great Disappointment").
+
+## Year - 1836
+ [Sam Houston](https://wikipedia.org/wiki/Sam_Houston "Sam Houston") is inaugurated as the first President of the Republic of Texas.
 
 ## Year - 1797
- In [Boston Harbor](https://wikipedia.org/wiki/Boston_Harbor "Boston Harbor"), the 44-gun [United States Navy](https://wikipedia.org/wiki/United_States_Navy "United States Navy") frigate [USS <i>Constitution</i>](https://wikipedia.org/wiki/USS_Constitution "USS Constitution") is launched.
+ [André-Jacques Garnerin](https://wikipedia.org/wiki/Andr%C3%A9-Jacques_Garnerin "André-Jacques Garnerin") makes the first recorded parachute jump, from 1,000 metres (3,300 ft) above Paris.
 
-## Year - 1774
- The [flag of Taunton, Massachusetts](https://wikipedia.org/wiki/Flag_of_Taunton,_Massachusetts "Flag of Taunton, Massachusetts") is the first to include the word "Liberty".
+## Year - 1790
+ [Northwest Indian War](https://wikipedia.org/wiki/Northwest_Indian_War "Northwest Indian War"): Native American forces defeat the United States, ending the [Harmar Campaign](https://wikipedia.org/wiki/Harmar_Campaign "Harmar Campaign").
 
-## Year - 1600
- [Tokugawa Ieyasu](https://wikipedia.org/wiki/Tokugawa_Ieyasu "Tokugawa Ieyasu") defeats the leaders of rival Japanese clans in the [Battle of Sekigahara](https://wikipedia.org/wiki/Battle_of_Sekigahara "Battle of Sekigahara") and becomes shōgun of Japan.
+## Year - 1784
+ Russia founds a colony on [Kodiak Island](https://wikipedia.org/wiki/Kodiak_Island "Kodiak Island"), Alaska.
 
-## Year - 1520
- [João Álvares Fagundes](https://wikipedia.org/wiki/Jo%C3%A3o_%C3%81lvares_Fagundes "João Álvares Fagundes") discovers the islands of [Saint Pierre and Miquelon](https://wikipedia.org/wiki/Saint_Pierre_and_Miquelon "Saint Pierre and Miquelon"), bestowing them their original name of "Islands of the 11,000 Virgins".
+## Year - 1777
+ [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): American defenders of Fort Mercer on the Delaware River repulse repeated Hessian attacks in the [Battle of Red Bank](https://wikipedia.org/wiki/Battle_of_Red_Bank "Battle of Red Bank").
 
-## Year - 1512
- [Martin Luther](https://wikipedia.org/wiki/Martin_Luther "Martin Luther") joins the theological faculty of the [University of Wittenberg](https://wikipedia.org/wiki/Martin_Luther_University_of_Halle-Wittenberg "Martin Luther University of Halle-Wittenberg").
+## Year - 1746
+ The College of New Jersey (later renamed [Princeton University](https://wikipedia.org/wiki/Princeton_University "Princeton University")) receives its charter.
 
-## Year - 1392
- Japanese [Emperor Go-Kameyama](https://wikipedia.org/wiki/Emperor_Go-Kameyama "Emperor Go-Kameyama") abdicates in favor of rival claimant [Go-Komatsu](https://wikipedia.org/wiki/Emperor_Go-Komatsu "Emperor Go-Komatsu").
+## Year - 1739
+ The [War of Jenkins' Ear](https://wikipedia.org/wiki/War_of_Jenkins%27_Ear "War of Jenkins' Ear") begins with the first attack on La Guaira.
 
-## Year - 1097
- [First Crusade](https://wikipedia.org/wiki/First_Crusade "First Crusade"): Crusaders led by [Godfrey of Bouillon](https://wikipedia.org/wiki/Godfrey_of_Bouillon "Godfrey of Bouillon"), [Bohemund of Taranto](https://wikipedia.org/wiki/Bohemond_I_of_Antioch "Bohemond I of Antioch"), and [Raymond IV, Count of Toulouse](https://wikipedia.org/wiki/Raymond_IV,_Count_of_Toulouse "Raymond IV, Count of Toulouse"), begin the [Siege of Antioch](https://wikipedia.org/wiki/Siege_of_Antioch "Siege of Antioch").
+## Year - 1730
+ Construction of the [Ladoga Canal](https://wikipedia.org/wiki/Ladoga_Canal "Ladoga Canal") is completed.
 
-## Year - 1096
- A Seljuk Turkish army successfully fights off the [People's Crusade](https://wikipedia.org/wiki/People%27s_Crusade "People's Crusade") at the [Battle of Civetot](https://wikipedia.org/wiki/Battle_of_Civetot "Battle of Civetot").
+## Year - 1721
+ The [Russian Empire](https://wikipedia.org/wiki/Russian_Empire "Russian Empire") is proclaimed by Tsar [Peter I](https://wikipedia.org/wiki/Peter_the_Great "Peter the Great") after the [Swedish](https://wikipedia.org/wiki/Swedish_Empire "Swedish Empire") defeat in the [Great Northern War](https://wikipedia.org/wiki/Great_Northern_War "Great Northern War").
+
+## Year - 1707
+ Four British naval vessels [run aground](https://wikipedia.org/wiki/Scilly_naval_disaster_of_1707 "Scilly naval disaster of 1707") on the Isles of Scilly because of faulty navigation. In response, the first [Longitude Act](https://wikipedia.org/wiki/Longitude_Act "Longitude Act") is enacted in 1714.
+
+## Year - 1633
+ The Ming dynasty [defeats](https://wikipedia.org/wiki/Battle_of_Liaoluo_Bay "Battle of Liaoluo Bay") the Dutch East India Company.
+
+## Year - 1383
+ The male line of the [Portuguese House of Burgundy](https://wikipedia.org/wiki/Portuguese_House_of_Burgundy "Portuguese House of Burgundy") becomes extinct with the death of King [Fernando](https://wikipedia.org/wiki/Ferdinand_I_of_Portugal "Ferdinand I of Portugal"), leaving only his daughter Beatrice. Rival claimants begin a period of [civil war](https://wikipedia.org/wiki/1383%E2%80%9385_Crisis "1383-85 Crisis") and disorder.
+
+## Year - 906
+[Ahmad ibn Kayghalagh](https://wikipedia.org/wiki/Ahmad_ibn_Kayghalagh "Ahmad ibn Kayghalagh") leads a raid against the Byzantine Empire, taking 4,000-5,000 captives.
+
+## Year - 794
+[Emperor Kanmu](https://wikipedia.org/wiki/Emperor_Kanmu "Emperor Kanmu") relocates the Japanese capital to [Heian-kyō](https://wikipedia.org/wiki/Heian-ky%C5%8D "Heian-kyō") (now Kyoto).
+
+## Year - 451
+The [Chalcedonian Creed](https://wikipedia.org/wiki/Chalcedonian_Creed "Chalcedonian Creed"), regarding the divine and human nature of Jesus, is adopted by the [Council of Chalcedon](https://wikipedia.org/wiki/Council_of_Chalcedon "Council of Chalcedon"), an ecumenical council.
 
 <br />
 
-> _Last Updated: 10/21/2024, 2:41:57 PM (in GMT)_
+> _Last Updated: 10/22/2024, 3:03:57 AM (in GMT)_
