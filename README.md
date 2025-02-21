@@ -1,165 +1,135 @@
 
 # Today's History 📜
 
-20th February 2025
+21st February 2025
 
 
-## Year - 2016
- Six people are killed and two injured in [multiple shooting incidents](https://wikipedia.org/wiki/2016_Kalamazoo_shootings "2016 Kalamazoo shootings") in [Kalamazoo County, Michigan](https://wikipedia.org/wiki/Kalamazoo_County,_Michigan "Kalamazoo County, Michigan").
+## Year - 2022
+ In the [ Russo-Ukrainian crisis](https://wikipedia.org/wiki/Prelude_to_the_2022_Russian_invasion_of_Ukraine "Prelude to the 2022 Russian invasion of Ukraine") Russian President [Vladimir Putin](https://wikipedia.org/wiki/Vladimir_Putin "Vladimir Putin") declares the [Luhansk People's Republic](https://wikipedia.org/wiki/Luhansk_People%27s_Republic "Luhansk People's Republic") and [Donetsk People's Republic](https://wikipedia.org/wiki/Donetsk_People%27s_Republic "Donetsk People's Republic") as independent from [Ukraine](https://wikipedia.org/wiki/Ukraine "Ukraine"), and moves troops into the region. The action is condemned by the [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations").
 
-## Year - 2015
- Two [trains collide](https://wikipedia.org/wiki/Rafz_train_crash "Rafz train crash") in the Swiss town of [Rafz](https://wikipedia.org/wiki/Rafz "Rafz") resulting in as many as 49 people injured and [Swiss Federal Railways](https://wikipedia.org/wiki/Swiss_Federal_Railways "Swiss Federal Railways") cancelling some services.
+## Year - 2013
+ At least 17 people are killed and 119 injured following [several bombings](https://wikipedia.org/wiki/2013_Hyderabad_blasts "2013 Hyderabad blasts") in the [Indian](https://wikipedia.org/wiki/India "India") city of [Hyderabad](https://wikipedia.org/wiki/Hyderabad "Hyderabad").
 
-## Year - 2014
- Dozens of [Euromaidan](https://wikipedia.org/wiki/Euromaidan "Euromaidan") anti-government protesters [died](https://wikipedia.org/wiki/Maidan_casualties "Maidan casualties") in Ukraine's capital [Kyiv](https://wikipedia.org/wiki/Kyiv "Kyiv"), many reportedly killed by snipers.
+## Year - 1995
+ [Steve Fossett](https://wikipedia.org/wiki/Steve_Fossett "Steve Fossett") lands in [Leader, Saskatchewan](https://wikipedia.org/wiki/Leader,_Saskatchewan "Leader, Saskatchewan"), Canada becoming the first person to make a solo flight across the Pacific Ocean in a [balloon](https://wikipedia.org/wiki/Hot_air_balloon "Hot air balloon").
 
-## Year - 2010
- In Madeira Island, Portugal, heavy rain causes [floods and mudslides](https://wikipedia.org/wiki/2010_Madeira_floods_and_mudslides "2010 Madeira floods and mudslides"), resulting in at least 43 deaths, in the worst disaster in the [history of the archipelago](https://wikipedia.org/wiki/History_of_Madeira "History of Madeira").
+## Year - 1994
+ [Aldrich Ames](https://wikipedia.org/wiki/Aldrich_Ames "Aldrich Ames") is arrested by the [Federal Bureau of Investigation](https://wikipedia.org/wiki/Federal_Bureau_of_Investigation "Federal Bureau of Investigation") for selling national secrets to the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") in [Arlington County, Virginia](https://wikipedia.org/wiki/Arlington_County,_Virginia "Arlington County, Virginia").
 
-## Year - 2009
- [Two Tamil Tigers aircraft packed with C4 explosives](https://wikipedia.org/wiki/2009_suicide_air_raid_on_Colombo "2009 suicide air raid on Colombo") en route to the national airforce headquarters are shot down by the Sri Lankan military before reaching their target, in a [kamikaze](https://wikipedia.org/wiki/Kamikaze "Kamikaze") style attack.
+## Year - 1975
+ [Watergate scandal](https://wikipedia.org/wiki/Watergate_scandal "Watergate scandal"): Former [United States Attorney General](https://wikipedia.org/wiki/United_States_Attorney_General "United States Attorney General") [John N. Mitchell](https://wikipedia.org/wiki/John_N._Mitchell "John N. Mitchell") and former [White House](https://wikipedia.org/wiki/White_House "White House") aides [H. R. Haldeman](https://wikipedia.org/wiki/H._R._Haldeman "H. R. Haldeman") and [John Ehrlichman](https://wikipedia.org/wiki/John_Ehrlichman "John Ehrlichman") are sentenced to prison.
 
-## Year - 2005
- Spain becomes the first country to vote in a [referendum on ratification](https://wikipedia.org/wiki/2005_Spanish_European_Constitution_referendum "2005 Spanish European Constitution referendum") of the [proposed Constitution](https://wikipedia.org/wiki/Treaty_establishing_a_Constitution_for_Europe "Treaty establishing a Constitution for Europe") of the [European Union](https://wikipedia.org/wiki/European_Union "European Union"), passing it by a substantial margin, but on a low turnout.
+## Year - 1974
+ The last Israeli soldiers leave the west bank of the [Suez Canal](https://wikipedia.org/wiki/Suez_Canal "Suez Canal") pursuant to a truce with [Egypt](https://wikipedia.org/wiki/Egypt "Egypt").
 
-## Year - 2003
- During a [Great White](https://wikipedia.org/wiki/Great_White "Great White") concert in [West Warwick, Rhode Island](https://wikipedia.org/wiki/West_Warwick,_Rhode_Island "West Warwick, Rhode Island"), a [pyrotechnics](https://wikipedia.org/wiki/Pyrotechnics "Pyrotechnics") display [sets the Station nightclub ablaze](https://wikipedia.org/wiki/The_Station_nightclub_fire "The Station nightclub fire"), killing 100 and injuring over 200 others.
+## Year - 1973
+ Over the [Sinai Desert](https://wikipedia.org/wiki/Sinai_Desert "Sinai Desert"), Israeli [fighter aircraft](https://wikipedia.org/wiki/Fighter_aircraft "Fighter aircraft") shoot down [Libyan Arab Airlines Flight 114](https://wikipedia.org/wiki/Libyan_Arab_Airlines_Flight_114 "Libyan Arab Airlines Flight 114") jet killing 108 people.
 
-## Year - 1998
- American figure skater [Tara Lipinski](https://wikipedia.org/wiki/Tara_Lipinski "Tara Lipinski"), at the age of 15, becomes the youngest Olympic figure skating gold-medalist at the [1998 Winter Olympics](https://wikipedia.org/wiki/1998_Winter_Olympics "1998 Winter Olympics") in [Nagano](https://wikipedia.org/wiki/Nagano,_Nagano "Nagano, Nagano"), Japan.
+## Year - 1972
+ The [Soviet](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") uncrewed [spaceship](https://wikipedia.org/wiki/Spacecraft "Spacecraft") [Luna 20](https://wikipedia.org/wiki/Luna_20 "Luna 20") lands on the Moon.
 
-## Year - 1991
- In the Albanian capital [Tirana](https://wikipedia.org/wiki/Tirana "Tirana"), a gigantic statue of [Albania](https://wikipedia.org/wiki/Albania "Albania")'s long-time leader, [Enver Hoxha](https://wikipedia.org/wiki/Enver_Hoxha "Enver Hoxha"), is brought down by mobs of angry protesters.
-
-## Year - 1988
- The [Nagorno-Karabakh Autonomous Oblast](https://wikipedia.org/wiki/Nagorno-Karabakh_Autonomous_Oblast "Nagorno-Karabakh Autonomous Oblast") votes to secede from [Azerbaijan](https://wikipedia.org/wiki/Azerbaijan "Azerbaijan") and join [Armenia](https://wikipedia.org/wiki/Armenia "Armenia"), triggering the [First Nagorno-Karabakh War](https://wikipedia.org/wiki/First_Nagorno-Karabakh_War "First Nagorno-Karabakh War").
-
-## Year - 1986
- The [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") launches its [Mir](https://wikipedia.org/wiki/Mir "Mir") spacecraft. Remaining in orbit for 15 years, it is occupied for ten of those years.
-
-## Year - 1979
- An [earthquake](https://wikipedia.org/wiki/Earthquake "Earthquake") cracks open the <i>Sinila</i> [volcanic crater](https://wikipedia.org/wiki/Volcanic_crater "Volcanic crater") on the [Dieng Plateau](https://wikipedia.org/wiki/Dieng_Plateau "Dieng Plateau"), releasing poisonous H<sub>2</sub>S gas and killing 149 villagers in the [Indonesian](https://wikipedia.org/wiki/Indonesia "Indonesia") province of [Central Java](https://wikipedia.org/wiki/Central_Java "Central Java").
+## Year - 1972
+ United States President [Richard Nixon](https://wikipedia.org/wiki/Richard_Nixon "Richard Nixon") visits China to normalize [Sino-American relations](https://wikipedia.org/wiki/Sino-American_relations "Sino-American relations").
 
 ## Year - 1971
- The United States [Emergency Broadcast System](https://wikipedia.org/wiki/Emergency_Broadcast_System "Emergency Broadcast System") is accidentally activated in an erroneous national alert.
+ The [Convention on Psychotropic Substances](https://wikipedia.org/wiki/Convention_on_Psychotropic_Substances "Convention on Psychotropic Substances") is signed at [Vienna](https://wikipedia.org/wiki/Vienna "Vienna").
 
-## Year - 1968
- The [China Academy of Space Technology](https://wikipedia.org/wiki/China_Academy_of_Space_Technology "China Academy of Space Technology"), China's main arm for the research, development, and creation of [space satellites](https://wikipedia.org/wiki/Satellite "Satellite"), is established in [Beijing](https://wikipedia.org/wiki/Beijing "Beijing").
-
-## Year - 1965
- [Ranger 8](https://wikipedia.org/wiki/Ranger_8 "Ranger 8") crashes into the Moon after a successful mission of photographing possible landing sites for the [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program") [astronauts](https://wikipedia.org/wiki/Astronaut "Astronaut").
-
-## Year - 1962
- [Mercury program](https://wikipedia.org/wiki/Mercury_program "Mercury program"): While aboard <i>[Friendship 7](https://wikipedia.org/wiki/Friendship_7 "Friendship 7")</i>, [John Glenn](https://wikipedia.org/wiki/John_Glenn "John Glenn") becomes the first American to orbit the [Earth](https://wikipedia.org/wiki/Earth "Earth"), making three orbits in four hours, 55 minutes.
-
-## Year - 1959
- The [Avro Arrow](https://wikipedia.org/wiki/Avro_Arrow "Avro Arrow") program to design and manufacture [supersonic](https://wikipedia.org/wiki/Supersonic "Supersonic") [jet fighters](https://wikipedia.org/wiki/Fighter_aircraft "Fighter aircraft") in Canada is cancelled by the [Diefenbaker](https://wikipedia.org/wiki/John_Diefenbaker "John Diefenbaker") government amid much political debate.
-
-## Year - 1956
- The [United States Merchant Marine Academy](https://wikipedia.org/wiki/United_States_Merchant_Marine_Academy "United States Merchant Marine Academy") becomes a permanent Service Academy.
+## Year - 1958
+ The CND symbol, aka [peace symbol](https://wikipedia.org/wiki/Peace_symbol "Peace symbol"), commissioned by the [Direct Action Committee](https://wikipedia.org/wiki/Direct_Action_Committee "Direct Action Committee") in protest against the [Atomic Weapons Research Establishment](https://wikipedia.org/wiki/Atomic_Weapons_Research_Establishment "Atomic Weapons Research Establishment"), is designed and completed by [Gerald Holtom](https://wikipedia.org/wiki/Gerald_Holtom "Gerald Holtom").
 
 ## Year - 1952
- [Emmett Ashford](https://wikipedia.org/wiki/Emmett_Ashford "Emmett Ashford") becomes the first [African-American](https://wikipedia.org/wiki/African-American "African-American") [umpire](https://wikipedia.org/wiki/Umpire_(baseball) "Umpire (baseball)") in organized [baseball](https://wikipedia.org/wiki/Baseball "Baseball") by being authorized to be a substitute umpire in the Southwestern International League.
+ The [Bengali Language Movement](https://wikipedia.org/wiki/Bengali_Language_Movement "Bengali Language Movement") protests occur at the [University of Dhaka](https://wikipedia.org/wiki/University_of_Dhaka "University of Dhaka") in [East Pakistan](https://wikipedia.org/wiki/East_Pakistan "East Pakistan") (now [Bangladesh](https://wikipedia.org/wiki/Bangladesh "Bangladesh")).
 
-## Year - 1944
- World War II: The United States takes [Eniwetok Atoll](https://wikipedia.org/wiki/Eniwetok_Atoll "Eniwetok Atoll").
+## Year - 1952
+ The British government, under [Winston Churchill](https://wikipedia.org/wiki/Winston_Churchill "Winston Churchill"), abolishes [identity cards](https://wikipedia.org/wiki/Identity_document "Identity document") in the UK to "set the people free".
 
-## Year - 1944
- World War II: The "[Big Week](https://wikipedia.org/wiki/Big_Week "Big Week")" began with American bomber raids on German aircraft manufacturing centers.
+## Year - 1948
+ [NASCAR](https://wikipedia.org/wiki/NASCAR "NASCAR") is incorporated.
 
-## Year - 1943
- <i>[The Saturday Evening Post](https://wikipedia.org/wiki/The_Saturday_Evening_Post "The Saturday Evening Post")</i> publishes the first of [Norman Rockwell](https://wikipedia.org/wiki/Norman_Rockwell "Norman Rockwell")'s <i>[Four Freedoms](https://wikipedia.org/wiki/Four_Freedoms_(Norman_Rockwell) "Four Freedoms (Norman Rockwell)")</i> in support of United States President [Franklin Roosevelt](https://wikipedia.org/wiki/Franklin_Roosevelt "Franklin Roosevelt")'s 1941 [State of the Union address](https://wikipedia.org/wiki/State_of_the_Union_address "State of the Union address") theme of [Four Freedoms](https://wikipedia.org/wiki/Four_Freedoms "Four Freedoms").
+## Year - 1947
+ In New York City, [Edwin Land](https://wikipedia.org/wiki/Edwin_Land "Edwin Land") demonstrates the first "[instant camera](https://wikipedia.org/wiki/Instant_camera "Instant camera")", the [Polaroid Land Camera](https://wikipedia.org/wiki/Polaroid_Land_Camera "Polaroid Land Camera"), to a meeting of the [Optical Society of America](https://wikipedia.org/wiki/Optical_Society_of_America "Optical Society of America").
 
-## Year - 1943
- World War II: American [movie studio](https://wikipedia.org/wiki/Movie_studio "Movie studio") executives agree to allow the [Office of War Information](https://wikipedia.org/wiki/Office_of_War_Information "Office of War Information") to censor movies.
+## Year - 1945
+ World War II: the [Brazilian Expeditionary Force](https://wikipedia.org/wiki/Brazilian_Expeditionary_Force "Brazilian Expeditionary Force") defeat the German forces in the [Battle of Monte Castello](https://wikipedia.org/wiki/Battle_of_Monte_Castello "Battle of Monte Castello") on the [Italian front](https://wikipedia.org/wiki/Italian_Campaign_(World_War_II) "Italian Campaign (World War II)").
 
-## Year - 1942
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): Lieutenant [Edward O'Hare](https://wikipedia.org/wiki/Edward_O%27Hare "Edward O'Hare") becomes America's first World War II [flying ace](https://wikipedia.org/wiki/Flying_ace "Flying ace").
+## Year - 1945
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): During the [Battle of Iwo Jima](https://wikipedia.org/wiki/Battle_of_Iwo_Jima "Battle of Iwo Jima"), Japanese [kamikaze](https://wikipedia.org/wiki/Kamikaze "Kamikaze") planes sink the escort carrier [USS <i>Bismarck Sea</i>](https://wikipedia.org/wiki/USS_Bismarck_Sea "USS Bismarck Sea") and damage the [USS <i>Saratoga</i>](https://wikipedia.org/wiki/USS_Saratoga_(CV-3) "USS Saratoga (CV-3)").
 
-## Year - 1939
- [Madison Square Garden Nazi rally](https://wikipedia.org/wiki/1939_Nazi_rally_at_Madison_Square_Garden "1939 Nazi rally at Madison Square Garden"): The largest ever pro-Nazi rally in United States history is convened in [Madison Square Garden](https://wikipedia.org/wiki/Madison_Square_Garden_(1925) "Madison Square Garden (1925)"), New York City, with 20,000 members and sympathizers of the [German American Bund](https://wikipedia.org/wiki/German_American_Bund "German American Bund") present.
+## Year - 1937
+ The [League of Nations](https://wikipedia.org/wiki/League_of_Nations "League of Nations") bans foreign national "[volunteers](https://wikipedia.org/wiki/Unlawful_combatant "Unlawful combatant")" in the [Spanish Civil War](https://wikipedia.org/wiki/Spanish_Civil_War "Spanish Civil War").
 
-## Year - 1935
- [Caroline Mikkelsen](https://wikipedia.org/wiki/Caroline_Mikkelsen "Caroline Mikkelsen") becomes the first woman to set foot in Antarctica.
+## Year - 1929
+ In the first battle of the [Warlord Rebellion in northeastern Shandong](https://wikipedia.org/wiki/Warlord_Rebellion_in_northeastern_Shandong "Warlord Rebellion in northeastern Shandong") against the [Nationalist government](https://wikipedia.org/wiki/Nationalist_government "Nationalist government") of China, a 24,000-strong rebel force led by Zhang Zongchang was defeated at Zhifu by 7,000 NRA troops.
 
-## Year - 1933
- [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") [secretly meets](https://wikipedia.org/wiki/Secret_Meeting_of_20_February_1933 "Secret Meeting of 20 February 1933") with German industrialists to arrange for financing of the [Nazi Party](https://wikipedia.org/wiki/Nazi_Party "Nazi Party")'s upcoming election campaign.
+## Year - 1925
+ <i>[The New Yorker](https://wikipedia.org/wiki/The_New_Yorker "The New Yorker")</i> publishes its first issue.
 
-## Year - 1933
- The [U.S. Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress") approves the [Blaine Act](https://wikipedia.org/wiki/Blaine_Act "Blaine Act") to repeal federal [Prohibition in the United States](https://wikipedia.org/wiki/Prohibition_in_the_United_States "Prohibition in the United States"), sending the [Twenty-first Amendment to the United States Constitution](https://wikipedia.org/wiki/Twenty-first_Amendment_to_the_United_States_Constitution "Twenty-first Amendment to the United States Constitution") to [state ratifying conventions](https://wikipedia.org/wiki/State_ratifying_conventions "State ratifying conventions") for approval.
+## Year - 1921
+ [Rezā Shāh](https://wikipedia.org/wiki/Rez%C4%81_Sh%C4%81h "Rezā Shāh") takes control of Tehran during a [successful coup](https://wikipedia.org/wiki/1921_Persian_coup_d%27%C3%A9tat "1921 Persian coup d'état").
 
-## Year - 1931
- An [anarchist](https://wikipedia.org/wiki/Anarchist "Anarchist") uprising in [Encarnación, Paraguay](https://wikipedia.org/wiki/Encarnaci%C3%B3n,_Paraguay "Encarnación, Paraguay") briefly transforms the city into a [revolutionary commune](https://wikipedia.org/wiki/Taking_of_Encarnaci%C3%B3n "Taking of Encarnación").
+## Year - 1921
+ [Constituent Assembly](https://wikipedia.org/wiki/Constituent_Assembly_of_Georgia "Constituent Assembly of Georgia") of the [Democratic Republic of Georgia](https://wikipedia.org/wiki/Democratic_Republic_of_Georgia "Democratic Republic of Georgia") adopts the country's first constitution.
 
-## Year - 1931
- The [U.S. Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress") approves the construction of the [San Francisco-Oakland Bay Bridge](https://wikipedia.org/wiki/San_Francisco%E2%80%93Oakland_Bay_Bridge "San Francisco-Oakland Bay Bridge") by the state of [California](https://wikipedia.org/wiki/California "California").
+## Year - 1919
+ German socialist [Kurt Eisner](https://wikipedia.org/wiki/Kurt_Eisner "Kurt Eisner") is [assassinated](https://wikipedia.org/wiki/Assassination "Assassination"). His death results in the establishment of the [Bavarian Soviet Republic](https://wikipedia.org/wiki/Bavarian_Soviet_Republic "Bavarian Soviet Republic") and parliament and government fleeing [Munich](https://wikipedia.org/wiki/Munich "Munich"), Germany.
 
-## Year - 1920
- [An earthquake](https://wikipedia.org/wiki/1920_Gori_earthquake "1920 Gori earthquake") kills between 114 and 130 in [Georgia](https://wikipedia.org/wiki/Democratic_Republic_of_Georgia "Democratic Republic of Georgia") and heavily damages the town of [Gori](https://wikipedia.org/wiki/Gori,_Georgia "Gori, Georgia").
+## Year - 1918
+ The last [Carolina parakeet](https://wikipedia.org/wiki/Carolina_parakeet "Carolina parakeet") dies in captivity at the [Cincinnati Zoo](https://wikipedia.org/wiki/Cincinnati_Zoo "Cincinnati Zoo").
+
+## Year - 1916
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): In France, the [Battle of Verdun](https://wikipedia.org/wiki/Battle_of_Verdun "Battle of Verdun") begins.
 
 ## Year - 1913
- [King O'Malley](https://wikipedia.org/wiki/King_O%27Malley "King O'Malley") drives in the first [survey](https://wikipedia.org/wiki/Surveying "Surveying") peg to mark commencement of work on the construction of [Canberra](https://wikipedia.org/wiki/Canberra "Canberra").
+ [Ioannina](https://wikipedia.org/wiki/Ioannina "Ioannina") is incorporated into the [Greek state](https://wikipedia.org/wiki/Greek_state "Greek state") after the [Balkan Wars](https://wikipedia.org/wiki/Balkan_Wars "Balkan Wars").
 
-## Year - 1909
- Publication of the [Futurist Manifesto](https://wikipedia.org/wiki/Futurist_Manifesto "Futurist Manifesto") in the French journal <i>[Le Figaro](https://wikipedia.org/wiki/Le_Figaro "Le Figaro")</i>.
+## Year - 1896
+ An Englishman raised in Australia, [Bob Fitzsimmons](https://wikipedia.org/wiki/Bob_Fitzsimmons "Bob Fitzsimmons"), fought an Irishman, [Peter Maher](https://wikipedia.org/wiki/Peter_Maher_(boxer) "Peter Maher (boxer)"), in an American promoted event which technically took place in Mexico, winning the [1896 World Heavyweight Championship](https://wikipedia.org/wiki/1896_World_Heavyweight_Championship "1896 World Heavyweight Championship") in [boxing](https://wikipedia.org/wiki/Boxing "Boxing").
 
-## Year - 1905
- The [U.S. Supreme Court](https://wikipedia.org/wiki/Supreme_Court_of_the_United_States "Supreme Court of the United States") upholds the constitutionality of [Massachusetts](https://wikipedia.org/wiki/Massachusetts "Massachusetts")'s mandatory [smallpox vaccination](https://wikipedia.org/wiki/Smallpox_vaccine "Smallpox vaccine") program in <i>[Jacobson v. Massachusetts](https://wikipedia.org/wiki/Jacobson_v._Massachusetts "Jacobson v. Massachusetts")</i>.
+## Year - 1885
+ The newly completed [Washington Monument](https://wikipedia.org/wiki/Washington_Monument "Washington Monument") is dedicated.
 
-## Year - 1901
- The legislature of [Hawaii Territory](https://wikipedia.org/wiki/Territory_of_Hawaii "Territory of Hawaii") convenes for the first time.
+## Year - 1878
+ The first [telephone directory](https://wikipedia.org/wiki/Telephone_directory "Telephone directory") is issued in [New Haven, Connecticut](https://wikipedia.org/wiki/New_Haven,_Connecticut "New Haven, Connecticut").
 
-## Year - 1877
- [Tchaikovsky](https://wikipedia.org/wiki/Pyotr_Ilyich_Tchaikovsky "Pyotr Ilyich Tchaikovsky")'s ballet <i>[Swan Lake](https://wikipedia.org/wiki/Swan_Lake "Swan Lake")</i> receives its premiere at the [Bolshoi Theatre](https://wikipedia.org/wiki/Bolshoi_Theatre "Bolshoi Theatre") in Moscow.
+## Year - 1874
+ The <i>[Oakland Daily Tribune](https://wikipedia.org/wiki/Oakland_Daily_Tribune "Oakland Daily Tribune")</i> publishes its first edition.
 
-## Year - 1872
- The [Metropolitan Museum of Art](https://wikipedia.org/wiki/Metropolitan_Museum_of_Art "Metropolitan Museum of Art") opens in [New York City](https://wikipedia.org/wiki/New_York_City "New York City").
+## Year - 1862
+ [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Battle of Valverde](https://wikipedia.org/wiki/Battle_of_Valverde "Battle of Valverde") is fought near [Fort Craig](https://wikipedia.org/wiki/Fort_Craig "Fort Craig") in [New Mexico Territory](https://wikipedia.org/wiki/New_Mexico_Territory "New Mexico Territory").
 
-## Year - 1865
- End of the [Uruguayan War](https://wikipedia.org/wiki/Uruguayan_War "Uruguayan War"), with a peace agreement between President [Tomás Villalba](https://wikipedia.org/wiki/Tom%C3%A1s_Villalba "Tomás Villalba") and rebel leader [Venancio Flores](https://wikipedia.org/wiki/Venancio_Flores "Venancio Flores"), setting the scene for the destructive [War of the Triple Alliance](https://wikipedia.org/wiki/Paraguayan_War "Paraguayan War").
+## Year - 1861
+ [Mariehamn](https://wikipedia.org/wiki/Mariehamn "Mariehamn"), the capital city of [Åland](https://wikipedia.org/wiki/%C3%85land "Åland"), is founded.
 
-## Year - 1864
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Battle of Olustee](https://wikipedia.org/wiki/Battle_of_Olustee "Battle of Olustee"): The largest battle fought in [Florida](https://wikipedia.org/wiki/Florida "Florida") during the war.
+## Year - 1848
+ [Karl Marx](https://wikipedia.org/wiki/Karl_Marx "Karl Marx") and [Friedrich Engels](https://wikipedia.org/wiki/Friedrich_Engels "Friedrich Engels") publish <i>[The Communist Manifesto](https://wikipedia.org/wiki/The_Communist_Manifesto "The Communist Manifesto")</i>.
 
-## Year - 1846
- Polish insurgents lead an [uprising in Kraków](https://wikipedia.org/wiki/Krak%C3%B3w_Uprising "Kraków Uprising") to incite a fight for national independence.
+## Year - 1842
+ John Greenough is granted the first U.S. patent for the [sewing machine](https://wikipedia.org/wiki/Sewing_machine "Sewing machine").
 
-## Year - 1835
- The [1835 Concepción earthquake](https://wikipedia.org/wiki/1835_Concepci%C3%B3n_earthquake "1835 Concepción earthquake") destroys [Concepción, Chile](https://wikipedia.org/wiki/Concepci%C3%B3n,_Chile "Concepción, Chile").
+## Year - 1828
+ Initial issue of the [Cherokee Phoenix](https://wikipedia.org/wiki/Cherokee_Phoenix "Cherokee Phoenix") is the first periodical to use the [Cherokee syllabary](https://wikipedia.org/wiki/Cherokee_syllabary "Cherokee syllabary") invented by [Sequoyah](https://wikipedia.org/wiki/Sequoyah "Sequoyah").
 
-## Year - 1824
- [William Buckland](https://wikipedia.org/wiki/William_Buckland "William Buckland") formally announces the name <i>[Megalosaurus](https://wikipedia.org/wiki/Megalosaurus "Megalosaurus")</i>, the first scientifically validly named non-avian dinosaur species.
+## Year - 1808
+ Without a previous declaration of war, Russian troops cross the border to Sweden at [Abborfors](https://wikipedia.org/wiki/Abborfors "Abborfors") in eastern Finland, thus beginning the [Finnish War](https://wikipedia.org/wiki/Finnish_War "Finnish War"), in which Sweden will lose the eastern half of the country (i.e. Finland) to Russia.
 
-## Year - 1816
- [Rossini's](https://wikipedia.org/wiki/Gioachino_Rossini "Gioachino Rossini") opera <i>[The Barber of Seville](https://wikipedia.org/wiki/The_Barber_of_Seville "The Barber of Seville")</i> premieres at the [Teatro Argentina](https://wikipedia.org/wiki/Teatro_Argentina "Teatro Argentina") in Rome.
+## Year - 1804
+ The first self-propelling [steam locomotive](https://wikipedia.org/wiki/Steam_locomotive "Steam locomotive") makes its outing at the [Pen-y-Darren Ironworks](https://wikipedia.org/wiki/Penydarren_Ironworks "Penydarren Ironworks") in Wales.
 
-## Year - 1813
- [Manuel Belgrano](https://wikipedia.org/wiki/Manuel_Belgrano "Manuel Belgrano") defeats the [royalist](https://wikipedia.org/wiki/Royalist_(Spanish_American_Independence) "Royalist (Spanish American Independence)") army of [Pío de Tristán](https://wikipedia.org/wiki/P%C3%ADo_de_Trist%C3%A1n "Pío de Tristán") during the [Battle of Salta](https://wikipedia.org/wiki/Battle_of_Salta "Battle of Salta").
+## Year - 1797
+ A force of 1,400 French soldiers [invaded Britain](https://wikipedia.org/wiki/Battle_of_Fishguard "Battle of Fishguard") at [Fishguard](https://wikipedia.org/wiki/Fishguard "Fishguard") in support of the [Society of United Irishmen](https://wikipedia.org/wiki/Society_of_United_Irishmen "Society of United Irishmen"). They were defeated by 500 British reservists.
 
-## Year - 1798
- [Louis-Alexandre Berthier](https://wikipedia.org/wiki/Louis-Alexandre_Berthier "Louis-Alexandre Berthier") removes [Pope Pius VI](https://wikipedia.org/wiki/Pope_Pius_VI "Pope Pius VI") from power.
+## Year - 1613
+ [Mikhail I](https://wikipedia.org/wiki/Michael_I_of_Russia "Michael I of Russia") is unanimously elected [Tsar](https://wikipedia.org/wiki/Tsar "Tsar") by a [national assembly](https://wikipedia.org/wiki/Zemsky_Sobor "Zemsky Sobor"), beginning the [Romanov dynasty](https://wikipedia.org/wiki/Romanov_dynasty "Romanov dynasty") of [Imperial Russia](https://wikipedia.org/wiki/Imperial_Russia "Imperial Russia").
 
-## Year - 1792
- The [Postal Service Act](https://wikipedia.org/wiki/Postal_Service_Act "Postal Service Act"), establishing the [United States Post Office Department](https://wikipedia.org/wiki/United_States_Post_Office_Department "United States Post Office Department"), is signed by United States President [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington").
+## Year - 1440
+ The [Prussian Confederation](https://wikipedia.org/wiki/Prussian_Confederation "Prussian Confederation") is formed.
 
-## Year - 1685
- [René-Robert Cavelier](https://wikipedia.org/wiki/Ren%C3%A9-Robert_Cavelier,_Sieur_de_La_Salle "René-Robert Cavelier, Sieur de La Salle") establishes [Fort St. Louis](https://wikipedia.org/wiki/French_colonization_of_Texas "French colonization of Texas") at [Matagorda Bay](https://wikipedia.org/wiki/Matagorda_Bay "Matagorda Bay") thus forming the basis for France's claim to [Texas](https://wikipedia.org/wiki/Texas "Texas").
+## Year - 1245
+ [Thomas](https://wikipedia.org/wiki/Thomas_(bishop_of_Finland) "Thomas (bishop of Finland)"), the first known [Bishop of Finland](https://wikipedia.org/wiki/Bishop_of_Finland "Bishop of Finland"), is granted resignation after confessing to torture and [forgery](https://wikipedia.org/wiki/Forgery "Forgery").
 
-## Year - 1553
- [Yohannan Sulaqa](https://wikipedia.org/wiki/Yohannan_Sulaqa "Yohannan Sulaqa") professes his Catholic belief and is ordained as bishop shortly after; this marks the beginning of the [Chaldean Catholic Church](https://wikipedia.org/wiki/Chaldean_Catholic_Church "Chaldean Catholic Church").
-
-## Year - 1547
- [Edward VI of England](https://wikipedia.org/wiki/Edward_VI_of_England "Edward VI of England") is [crowned](https://wikipedia.org/wiki/Coronation_of_Edward_VI "Coronation of Edward VI") [King of England](https://wikipedia.org/wiki/King_of_England "King of England") at [Westminster Abbey](https://wikipedia.org/wiki/Westminster_Abbey "Westminster Abbey").
-
-## Year - 1521
- [Juan Ponce de León](https://wikipedia.org/wiki/Juan_Ponce_de_Le%C3%B3n "Juan Ponce de León") sets out from Spain for Florida with about 200 prospective colonists.
-
-## Year - 1472
- [Orkney](https://wikipedia.org/wiki/Orkney "Orkney") and [Shetland](https://wikipedia.org/wiki/Shetland "Shetland") are [pawned](https://wikipedia.org/wiki/Pawn_(law) "Pawn (law)") by Norway to Scotland in lieu of a [dowry](https://wikipedia.org/wiki/Dowry "Dowry") for [Margaret of Denmark](https://wikipedia.org/wiki/Margaret_of_Denmark,_Queen_of_Scotland "Margaret of Denmark, Queen of Scotland").
-
-## Year - 1339
- The [Milanese](https://wikipedia.org/wiki/Milan "Milan") army and the St. George's (San Giorgio) Mercenaries of [Lodrisio Visconti](https://wikipedia.org/wiki/Lodrisio_Visconti "Lodrisio Visconti") clash in the [Battle of Parabiago](https://wikipedia.org/wiki/Battle_of_Parabiago "Battle of Parabiago"); Visconti is defeated.
+## Year - 452 or 453
+ 453 - [452](https://wikipedia.org/wiki/452 "452") or [453](https://wikipedia.org/wiki/453 "453") - [Severianus, Bishop of Scythopolis](https://wikipedia.org/wiki/Severianus,_Bishop_of_Scythopolis "Severianus, Bishop of Scythopolis"), is martyred in Palestine.
 
 <br />
 
-> _Last Updated: 2/20/2025, 2:41:38 PM (in GMT)_
+> _Last Updated: 2/21/2025, 3:01:58 AM (in GMT)_
