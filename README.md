@@ -1,99 +1,117 @@
 
 # Today's History 📜
 
-25th February 2025
+26th February 2025
 
 
-## Year - 2016
- Three people are killed and fourteen others injured in [a series of shootings in the small Kansas cities of Newton and Hesston](https://wikipedia.org/wiki/Hesston_shootings "Hesston shootings").
+## Year - 2021
+ A total of 279 female students aged between 10 and 17 are kidnapped by bandits in the [Zamfara kidnapping](https://wikipedia.org/wiki/Zamfara_kidnapping "Zamfara kidnapping") in [Zamfara State](https://wikipedia.org/wiki/Zamfara_State "Zamfara State"), Nigeria.
 
-## Year - 2015
- At least 310 people are killed in [avalanches](https://wikipedia.org/wiki/2015_Afghanistan_avalanches "2015 Afghanistan avalanches") in northeastern [Afghanistan](https://wikipedia.org/wiki/Afghanistan "Afghanistan").
+## Year - 2019
+ [Indian Air Force](https://wikipedia.org/wiki/Indian_Air_Force "Indian Air Force") fighter-jets [targeted](https://wikipedia.org/wiki/2019_Balakot_airstrike "2019 Balakot airstrike") [Jaish-e-Mohammed](https://wikipedia.org/wiki/Jaish-e-Mohammed "Jaish-e-Mohammed") [terrorist training camps](https://wikipedia.org/wiki/Terrorist_training_camp "Terrorist training camp") in [Balakot](https://wikipedia.org/wiki/Balakot "Balakot").
 
-## Year - 2009
- [Turkish Airlines Flight 1951](https://wikipedia.org/wiki/Turkish_Airlines_Flight_1951 "Turkish Airlines Flight 1951") crashed during landing at the [Amsterdam Schiphol Airport](https://wikipedia.org/wiki/Amsterdam_Airport_Schiphol "Amsterdam Airport Schiphol"), Netherlands, primarily due to a faulty [radio altimeter](https://wikipedia.org/wiki/Radar_altimeter "Radar altimeter"), resulting in the death of nine passengers and crew including all three pilots.
+## Year - 2013
+ A [hot air balloon](https://wikipedia.org/wiki/Hot_air_balloon "Hot air balloon") [crashes near Luxor, Egypt](https://wikipedia.org/wiki/2013_Luxor_hot_air_balloon_crash "2013 Luxor hot air balloon crash"), killing 19 people.
 
-## Year - 2009
- Soldiers of the [Bangladesh Rifles](https://wikipedia.org/wiki/Border_Guard_Bangladesh "Border Guard Bangladesh") [mutiny](https://wikipedia.org/wiki/Bangladesh_Rifles_revolt "Bangladesh Rifles revolt") at their headquarters in [Pilkhana](https://wikipedia.org/wiki/Pilkhana,_Bangladesh "Pilkhana, Bangladesh"), [Dhaka](https://wikipedia.org/wiki/Dhaka "Dhaka"), Bangladesh, resulting in 74 deaths, including 57 army officials.
+## Year - 2012
+ Seventeen-year-old African-American student [Trayvon Martin](https://wikipedia.org/wiki/Trayvon_Martin "Trayvon Martin") is [shot to death](https://wikipedia.org/wiki/Killing_of_Trayvon_Martin "Killing of Trayvon Martin") by [neighborhood watch](https://wikipedia.org/wiki/Neighborhood_watch "Neighborhood watch") coordinator [George Zimmerman](https://wikipedia.org/wiki/George_Zimmerman "George Zimmerman") in an altercation in [Sanford, Florida](https://wikipedia.org/wiki/Sanford,_Florida "Sanford, Florida").
 
-## Year - 1999
- [Alitalia Flight 1553](https://wikipedia.org/wiki/Alitalia_Flight_1553 "Alitalia Flight 1553") crashes at [Genoa Cristoforo Colombo Airport](https://wikipedia.org/wiki/Genoa_Cristoforo_Colombo_Airport "Genoa Cristoforo Colombo Airport") in [Genoa](https://wikipedia.org/wiki/Genoa "Genoa"), Italy, killing four.
+## Year - 2012
+ A [train derails](https://wikipedia.org/wiki/2012_Burlington_VIA_derailment "2012 Burlington VIA derailment") in [Burlington, Ontario](https://wikipedia.org/wiki/Burlington,_Ontario "Burlington, Ontario"), Canada killing at least three people and injuring 45.
 
-## Year - 1994
- American-Israeli extremist [Baruch Goldstein](https://wikipedia.org/wiki/Baruch_Goldstein "Baruch Goldstein") commits [a mass shooting](https://wikipedia.org/wiki/Cave_of_the_Patriarchs_massacre "Cave of the Patriarchs massacre") at the [Cave of the Patriarchs](https://wikipedia.org/wiki/Cave_of_the_Patriarchs "Cave of the Patriarchs") mausoleum, leaving 29 dead and over 100 injured before he was disarmed and beaten to death by survivors.
+## Year - 2008
+ The [New York Philharmonic](https://wikipedia.org/wiki/New_York_Philharmonic "New York Philharmonic") [performs in Pyongyang, North Korea](https://wikipedia.org/wiki/2008_New_York_Philharmonic_visit_to_North_Korea "2008 New York Philharmonic visit to North Korea"); this is the first event of its kind to take place in North Korea.
 
-## Year - 1991
- Disbandment of the [Warsaw Pact](https://wikipedia.org/wiki/Warsaw_Pact "Warsaw Pact") at a meeting of its members in [Budapest](https://wikipedia.org/wiki/Budapest "Budapest").
+## Year - 1995
+ The UK's oldest investment banking institute, [Barings Bank](https://wikipedia.org/wiki/Barings_Bank "Barings Bank"), collapses after a rogue securities broker [Nick Leeson](https://wikipedia.org/wiki/Nick_Leeson "Nick Leeson") loses $1.4 billion by speculating on the [Singapore International Monetary Exchange](https://wikipedia.org/wiki/Singapore_International_Monetary_Exchange "Singapore International Monetary Exchange") using [futures contracts](https://wikipedia.org/wiki/Futures_contract "Futures contract").
 
-## Year - 1986
- [People Power Revolution](https://wikipedia.org/wiki/People_Power_Revolution "People Power Revolution"): President of the Philippines [Ferdinand Marcos](https://wikipedia.org/wiki/Ferdinand_Marcos "Ferdinand Marcos") flees the nation after 20 years of rule; [Corazon Aquino](https://wikipedia.org/wiki/Corazon_Aquino "Corazon Aquino") becomes the [Philippines](https://wikipedia.org/wiki/Philippines "Philippines")' first female president.
+## Year - 1993
+ [World Trade Center bombing](https://wikipedia.org/wiki/1993_World_Trade_Center_bombing "1993 World Trade Center bombing"): In New York City, a truck bomb parked below the [North Tower](https://wikipedia.org/wiki/1_World_Trade_Center_(1971%E2%80%932001) "1 World Trade Center (1971-2001)") of the [World Trade Center](https://wikipedia.org/wiki/World_Trade_Center_(1973%E2%80%932001) "World Trade Center (1973-2001)") explodes, killing six and injuring over a thousand people.
+
+## Year - 1992
+ [First Nagorno-Karabakh War](https://wikipedia.org/wiki/First_Nagorno-Karabakh_War "First Nagorno-Karabakh War"): [Khojaly Massacre](https://wikipedia.org/wiki/Khojaly_Massacre "Khojaly Massacre"): Armenian armed forces [open fire on](https://wikipedia.org/wiki/Khojaly_Massacre "Khojaly Massacre") Azeri civilians at a military post outside the town of Khojaly leaving hundreds dead.
+
+## Year - 1987
+ [Iran-Contra affair](https://wikipedia.org/wiki/Iran%E2%80%93Contra_affair "Iran-Contra affair"): The [Tower Commission](https://wikipedia.org/wiki/Tower_Commission "Tower Commission") rebukes President [Ronald Reagan](https://wikipedia.org/wiki/Ronald_Reagan "Ronald Reagan") for not controlling his national security staff.
 
 ## Year - 1980
- The government of [Suriname](https://wikipedia.org/wiki/Suriname "Suriname") is [overthrown by a military coup](https://wikipedia.org/wiki/1980_Surinamese_coup_d%27%C3%A9tat "1980 Surinamese coup d'état") led by [Dési Bouterse](https://wikipedia.org/wiki/D%C3%A9si_Bouterse "Dési Bouterse").
+ Egypt and Israel establish full [diplomatic relations](https://wikipedia.org/wiki/Egypt%E2%80%93Israel_relations "Egypt-Israel relations").
 
-## Year - 1956
- In his speech <i>[On the Cult of Personality and Its Consequences](https://wikipedia.org/wiki/On_the_Cult_of_Personality_and_Its_Consequences "On the Cult of Personality and Its Consequences")</i>, [Nikita Khrushchev](https://wikipedia.org/wiki/Nikita_Khrushchev "Nikita Khrushchev"), leader of the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union"), denounces [Stalin](https://wikipedia.org/wiki/Stalin "Stalin").
+## Year - 1979
+ The [Superliner](https://wikipedia.org/wiki/Superliner_(railcar) "Superliner (railcar)") railcar enters revenue service with [Amtrak](https://wikipedia.org/wiki/Amtrak "Amtrak").
 
-## Year - 1951
- The first [Pan American Games](https://wikipedia.org/wiki/Pan_American_Games "Pan American Games") are officially opened in [Buenos Aires](https://wikipedia.org/wiki/Buenos_Aires "Buenos Aires") by Argentine President [Juan Perón](https://wikipedia.org/wiki/Juan_Per%C3%B3n "Juan Perón").
+## Year - 1971
+ [U.N. Secretary-General](https://wikipedia.org/wiki/Secretary-General_of_the_United_Nations "Secretary-General of the United Nations") [U Thant](https://wikipedia.org/wiki/U_Thant "U Thant") signs [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations") proclamation of the vernal equinox as [Earth Day](https://wikipedia.org/wiki/Earth_Day "Earth Day").
 
-## Year - 1948
- In a [coup d'état](https://wikipedia.org/wiki/1948_Czechoslovak_coup_d%27%C3%A9tat "1948 Czechoslovak coup d'état") led by [Klement Gottwald](https://wikipedia.org/wiki/Klement_Gottwald "Klement Gottwald"), the [Communist Party of Czechoslovakia](https://wikipedia.org/wiki/Communist_Party_of_Czechoslovakia "Communist Party of Czechoslovakia") takes control of government in [Prague](https://wikipedia.org/wiki/Prague "Prague") to end the [Third Czechoslovak Republic](https://wikipedia.org/wiki/Third_Czechoslovak_Republic "Third Czechoslovak Republic").
+## Year - 1966
+ [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program"): Launch of [AS-201](https://wikipedia.org/wiki/AS-201 "AS-201"), the first flight of the [Saturn IB](https://wikipedia.org/wiki/Saturn_IB "Saturn IB") rocket.
 
-## Year - 1947
- Soviet [NKVD](https://wikipedia.org/wiki/NKVD "NKVD") forces in [Hungary](https://wikipedia.org/wiki/Second_Hungarian_Republic "Second Hungarian Republic") abduct [Béla Kovács](https://wikipedia.org/wiki/B%C3%A9la_Kov%C3%A1cs_(politician,_1908) "Béla Kovács (politician, 1908)")—secretary-general of the majority [Independent Smallholders' Party](https://wikipedia.org/wiki/Independent_Smallholders%27_Party "Independent Smallholders' Party")—and deport him to the USSR in defiance of Parliament. His arrest is an important turning point in the [Communist](https://wikipedia.org/wiki/Hungarian_Communist_Party "Hungarian Communist Party") takeover of Hungary.
+## Year - 1960
+ A New York-bound [Alitalia](https://wikipedia.org/wiki/Alitalia "Alitalia") airliner [crashes](https://wikipedia.org/wiki/Alitalia_Flight_618 "Alitalia Flight 618") into a cemetery in [Shannon](https://wikipedia.org/wiki/Shannon,_County_Clare "Shannon, County Clare"), Ireland, shortly after takeoff, killing 34 of the 52 persons on board.
 
-## Year - 1947
- The formal [abolition of Prussia](https://wikipedia.org/wiki/Abolition_of_Prussia "Abolition of Prussia") is proclaimed by the [Allied Control Council](https://wikipedia.org/wiki/Allied_Control_Council "Allied Control Council"), the Prussian government having already been abolished by the <i>[Preußenschlag](https://wikipedia.org/wiki/Preu%C3%9Fenschlag "Preußenschlag")</i> of 1932.
+## Year - 1952
+ [Vincent Massey](https://wikipedia.org/wiki/Vincent_Massey "Vincent Massey") is sworn in as the first Canadian-born [Governor General of Canada](https://wikipedia.org/wiki/Governor_General_of_Canada "Governor General of Canada").
 
-## Year - 1941
- The outlawed [Communist Party of the Netherlands](https://wikipedia.org/wiki/Communist_Party_of_the_Netherlands "Communist Party of the Netherlands") organises a [general strike](https://wikipedia.org/wiki/February_Strike "February Strike") in German-occupied [Amsterdam](https://wikipedia.org/wiki/Amsterdam "Amsterdam") to protest against Nazi persecution of [Dutch Jews](https://wikipedia.org/wiki/Dutch_Jews "Dutch Jews").
+## Year - 1945
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): US troops [reclaim the Philippine island of Corregidor](https://wikipedia.org/wiki/Battle_of_Corregidor_(1945) "Battle of Corregidor (1945)") from the Japanese.
 
-## Year - 1939
- As part of [British air raid precautions](https://wikipedia.org/wiki/Air_Raid_Precautions_in_the_United_Kingdom "Air Raid Precautions in the United Kingdom"), the first of 2.5 million [Anderson shelters](https://wikipedia.org/wiki/Air_raid_shelter "Air raid shelter") is constructed in a garden in [Islington](https://wikipedia.org/wiki/Islington "Islington"), north London.
+## Year - 1936
+ In the [February 26 Incident](https://wikipedia.org/wiki/February_26_Incident "February 26 Incident"), young nationalist Japanese military officers assassinate multiple [cabinet](https://wikipedia.org/wiki/Cabinet_of_Japan "Cabinet of Japan") statesmen and start a rebellion in downtown [Tokyo](https://wikipedia.org/wiki/Tokyo "Tokyo"), which is ended 3 days later.
 
-## Year - 1933
- Launch of the [USS <i>Ranger</i>](https://wikipedia.org/wiki/USS_Ranger_(CV-4) "USS Ranger (CV-4)") at [Newport News, Virginia](https://wikipedia.org/wiki/Newport_News,_Virginia "Newport News, Virginia"). It is the first purpose-built [aircraft carrier](https://wikipedia.org/wiki/Aircraft_carrier "Aircraft carrier") to be commissioned by the [US Navy](https://wikipedia.org/wiki/US_Navy "US Navy").
+## Year - 1935
+ [Robert Watson-Watt](https://wikipedia.org/wiki/Robert_Watson-Watt "Robert Watson-Watt") carries out a demonstration near [Daventry](https://wikipedia.org/wiki/Daventry "Daventry") which leads directly to the development of [radar](https://wikipedia.org/wiki/Radar "Radar") in the United Kingdom.
 
-## Year - 1932
- [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler"), having been [stateless](https://wikipedia.org/wiki/Statelessness "Statelessness") for seven years, obtains German citizenship when he is appointed a [Brunswick](https://wikipedia.org/wiki/Free_State_of_Brunswick "Free State of Brunswick") state official by [Dietrich Klagges](https://wikipedia.org/wiki/Dietrich_Klagges "Dietrich Klagges"), a fellow Nazi. As a result, Hitler is able to run for [Reichspräsident](https://wikipedia.org/wiki/President_of_Germany_(1919%E2%80%931945) "President of Germany (1919-1945)") in the 1932 election.
+## Year - 1935
+ [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") orders the [Luftwaffe](https://wikipedia.org/wiki/Luftwaffe "Luftwaffe") to be re-formed, violating the provisions of the [Treaty of Versailles](https://wikipedia.org/wiki/Treaty_of_Versailles "Treaty of Versailles").
 
-## Year - 1921
- [Georgian](https://wikipedia.org/wiki/Democratic_Republic_of_Georgia "Democratic Republic of Georgia") capital [Tbilisi](https://wikipedia.org/wiki/Tbilisi "Tbilisi") falls to the [invading Russian forces](https://wikipedia.org/wiki/Red_Army_invasion_of_Georgia "Red Army invasion of Georgia") after heavy fighting and the Russians declare the [Georgian Soviet Socialist Republic](https://wikipedia.org/wiki/Georgian_Soviet_Socialist_Republic "Georgian Soviet Socialist Republic").
+## Year - 1929
+ President [Calvin Coolidge](https://wikipedia.org/wiki/Calvin_Coolidge "Calvin Coolidge") signs legislation establishing the 96,000 acres (390 km) [Grand Teton National Park](https://wikipedia.org/wiki/Grand_Teton_National_Park "Grand Teton National Park") in [Wyoming](https://wikipedia.org/wiki/Wyoming "Wyoming").
 
-## Year - 1918
- World War I: German forces capture [Tallinn](https://wikipedia.org/wiki/Tallinn "Tallinn") to virtually complete the [occupation of Estonia](https://wikipedia.org/wiki/German_occupation_of_Estonia_during_World_War_I "German occupation of Estonia during World War I").
+## Year - 1919
+ President [Woodrow Wilson](https://wikipedia.org/wiki/Woodrow_Wilson "Woodrow Wilson") signs an act of Congress establishing the [Grand Canyon National Park](https://wikipedia.org/wiki/Grand_Canyon_National_Park "Grand Canyon National Park").
 
-## Year - 1916
- [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): In the [Battle of Verdun](https://wikipedia.org/wiki/Battle_of_Verdun "Battle of Verdun"), a German unit captures [Fort Douaumont](https://wikipedia.org/wiki/Fort_Douaumont "Fort Douaumont"), keystone of the French defences, without a fight.
+## Year - 1914
+ [HMHS <i>Britannic</i>](https://wikipedia.org/wiki/HMHS_Britannic "HMHS Britannic"), sister to the [RMS <i>Titanic</i>](https://wikipedia.org/wiki/Titanic "Titanic"), is launched at [Harland and Wolff](https://wikipedia.org/wiki/Harland_and_Wolff "Harland and Wolff") shipyard in [Belfast](https://wikipedia.org/wiki/Belfast "Belfast").
 
-## Year - 1912
- [Marie-Adélaïde](https://wikipedia.org/wiki/Marie-Ad%C3%A9la%C3%AFde,_Grand_Duchess_of_Luxembourg "Marie-Adélaïde, Grand Duchess of Luxembourg"), the eldest of six daughters of [Guillaume IV](https://wikipedia.org/wiki/Guillaume_IV,_Grand_Duke_of_Luxembourg "Guillaume IV, Grand Duke of Luxembourg"), becomes the first reigning [Grand Duchess](https://wikipedia.org/wiki/Grand_Duke_of_Luxembourg "Grand Duke of Luxembourg") of [Luxembourg](https://wikipedia.org/wiki/Luxembourg "Luxembourg").
+## Year - 1909
+ [Kinemacolor](https://wikipedia.org/wiki/Kinemacolor "Kinemacolor"), the first successful color [motion picture](https://wikipedia.org/wiki/Film "Film") process, is first shown to the general public at the [Palace Theatre](https://wikipedia.org/wiki/Palace_Theatre,_London "Palace Theatre, London") in London.
 
-## Year - 1875
- [Guangxu Emperor](https://wikipedia.org/wiki/Guangxu_Emperor "Guangxu Emperor") of [Qing dynasty](https://wikipedia.org/wiki/Qing_dynasty "Qing dynasty") China begins his reign, under [Empress Dowager Cixi](https://wikipedia.org/wiki/Empress_Dowager_Cixi "Empress Dowager Cixi")'s regency.
+## Year - 1876
+ [Japan](https://wikipedia.org/wiki/Empire_of_Japan "Empire of Japan") and [Korea](https://wikipedia.org/wiki/Korean_Empire "Korean Empire") sign the [Treaty of Kangwha](https://wikipedia.org/wiki/Japan%E2%80%93Korea_Treaty_of_1876 "Japan-Korea Treaty of 1876"), which grants Japanese citizens [extraterritoriality](https://wikipedia.org/wiki/Extraterritoriality "Extraterritoriality") rights in Korea, opens three Korean ports to Japanese trade, and ends Korea's status as a [tributary state](https://wikipedia.org/wiki/Tributary_state "Tributary state") of [Qing dynasty](https://wikipedia.org/wiki/Qing_dynasty "Qing dynasty") China.
 
 ## Year - 1870
- [Hiram Rhodes Revels](https://wikipedia.org/wiki/Hiram_Rhodes_Revels "Hiram Rhodes Revels"), a [Republican](https://wikipedia.org/wiki/Republican_Party_(United_States) "Republican Party (United States)") from [Mississippi](https://wikipedia.org/wiki/Mississippi "Mississippi"), is sworn into the [United States Senate](https://wikipedia.org/wiki/United_States_Senate "United States Senate"), becoming the first [African American](https://wikipedia.org/wiki/African_American "African American") ever to sit in [Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress").
+ The [Beach Pneumatic Transit](https://wikipedia.org/wiki/Beach_Pneumatic_Transit "Beach Pneumatic Transit") in New York City, intending as a demonstration for a subway line opens.
 
-## Year - 1843
- [Lord George Paulet](https://wikipedia.org/wiki/Lord_George_Paulet "Lord George Paulet") occupies the [Kingdom of Hawaii](https://wikipedia.org/wiki/Kingdom_of_Hawaii "Kingdom of Hawaii") in the name of Great Britain in the [Paulet affair](https://wikipedia.org/wiki/Paulet_affair "Paulet affair").
+## Year - 1815
+ [Napoleon Bonaparte](https://wikipedia.org/wiki/Napoleon "Napoleon") escapes from exile on the island of [Elba](https://wikipedia.org/wiki/Elba "Elba").
 
-## Year - 1836
- [Samuel Colt](https://wikipedia.org/wiki/Samuel_Colt "Samuel Colt") is granted a United States [patent](https://wikipedia.org/wiki/Patent "Patent") for his [revolver](https://wikipedia.org/wiki/Revolver "Revolver") firearm.
+## Year - 1794
+ The first [Christiansborg Palace](https://wikipedia.org/wiki/Christiansborg_Palace_(1st) "Christiansborg Palace (1st)") in [Copenhagen](https://wikipedia.org/wiki/Copenhagen "Copenhagen") burns down.
 
-## Year - 1705
- [George Frideric Handel](https://wikipedia.org/wiki/George_Frideric_Handel "George Frideric Handel")'s opera <i>[Nero](https://wikipedia.org/wiki/Handel%27s_lost_Hamburg_operas#Nero "Handel's lost Hamburg operas")</i> premiered in [Hamburg](https://wikipedia.org/wiki/Hamburg "Hamburg").
+## Year - 1775
+ The [British East India Company](https://wikipedia.org/wiki/British_East_India_Company "British East India Company") [factory](https://wikipedia.org/wiki/Factory_(trading_post) "Factory (trading post)") on [Balambangan Island](https://wikipedia.org/wiki/Balambangan_Island "Balambangan Island") is destroyed by [Moro pirates](https://wikipedia.org/wiki/Piracy_in_the_Sulu_Sea "Piracy in the Sulu Sea").
 
-## Year - 1336
- Four thousand defenders of [Pilenai](https://wikipedia.org/wiki/Pilenai "Pilenai") commit [mass suicide](https://wikipedia.org/wiki/Mass_suicide "Mass suicide") rather than be taken captive by the [Teutonic Knights](https://wikipedia.org/wiki/Teutonic_Knights "Teutonic Knights").
+## Year - 1616
+ [Galileo Galilei is formally banned](https://wikipedia.org/wiki/Galileo_affair#Inquisition_and_first_judgment,_1616 "Galileo affair") by the Roman Catholic Church from teaching or defending [the view that the earth orbits the sun](https://wikipedia.org/wiki/Heliocentrism "Heliocentrism").
 
-## Year - 628
-[Khosrow II](https://wikipedia.org/wiki/Khosrow_II "Khosrow II"), the last great Shah of the [Sasanian Empire](https://wikipedia.org/wiki/Sasanian_Empire "Sasanian Empire") (Iran), is overthrown by his son [Kavadh II](https://wikipedia.org/wiki/Kavadh_II "Kavadh II").
+## Year - 1606
+ The [Janszoon voyage of 1605-06](https://wikipedia.org/wiki/Janszoon_voyage_of_1605%E2%80%9306 "Janszoon voyage of 1605-06") becomes the first European expedition to set foot on Australia, although it is mistaken as a part of New Guinea.
 
-## Year - 138
-[Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") [Hadrian](https://wikipedia.org/wiki/Hadrian "Hadrian") adopts [Antoninus Pius](https://wikipedia.org/wiki/Antoninus_Pius "Antoninus Pius") as his son, effectively making him his successor.
+## Year - 1365
+ The [Ava Kingdom](https://wikipedia.org/wiki/Ava_Kingdom "Ava Kingdom") and the royal city of [Ava](https://wikipedia.org/wiki/Inwa "Inwa") (Inwa) founded by King [Thado Minbya](https://wikipedia.org/wiki/Thado_Minbya "Thado Minbya").
+
+## Year - 1266
+ [Battle of Benevento](https://wikipedia.org/wiki/Battle_of_Benevento "Battle of Benevento"): An army led by [Charles, Count of Anjou](https://wikipedia.org/wiki/Charles_I_of_Naples "Charles I of Naples"), defeats a combined German and [Sicilian](https://wikipedia.org/wiki/Sicily "Sicily") force led by [Manfred, King of Sicily](https://wikipedia.org/wiki/Manfred,_King_of_Sicily "Manfred, King of Sicily"). Manfred is killed in the battle and [Pope Clement IV](https://wikipedia.org/wiki/Pope_Clement_IV "Pope Clement IV") invests Charles as king of [Sicily](https://wikipedia.org/wiki/Sicily "Sicily") and [Naples](https://wikipedia.org/wiki/Kingdom_of_Naples "Kingdom of Naples").
+
+## Year - 364
+[Valentinian I](https://wikipedia.org/wiki/Valentinian_I "Valentinian I") is proclaimed [Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor").
+
+## Year - 320
+[Chandragupta I](https://wikipedia.org/wiki/Chandragupta_I "Chandragupta I") is officially crowned as the first [Gupta emperor](https://wikipedia.org/wiki/Gupta_emperor "Gupta emperor").
+
+## Year - 747 BC
+ - 747 BC - According to [Ptolemy](https://wikipedia.org/wiki/Ptolemy "Ptolemy"), the [epoch](https://wikipedia.org/wiki/Epoch_(reference_date) "Epoch (reference date)") (origin) of the [Nabonassar](https://wikipedia.org/wiki/Nabonassar "Nabonassar") Era began at noon on this date. Historians use this to establish the modern [BC chronology](https://wikipedia.org/wiki/Anno_Domini "Anno Domini") for dating historic events.
 
 <br />
 
-> _Last Updated: 2/25/2025, 2:42:26 PM (in GMT)_
+> _Last Updated: 2/26/2025, 3:03:44 AM (in GMT)_
