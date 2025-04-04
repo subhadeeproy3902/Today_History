@@ -1,150 +1,198 @@
 
 # Today's History 📜
 
-3rd April 2025
+4th April 2025
 
 
-## Year - 2018
- [YouTube headquarters shooting](https://wikipedia.org/wiki/YouTube_headquarters_shooting "YouTube headquarters shooting"): A 38-year-old gunwoman opens fire at YouTube Headquarters in [San Bruno, California](https://wikipedia.org/wiki/San_Bruno,_California "San Bruno, California"), injuring three people before committing suicide.
+## Year - 2023
+ [Finland](https://wikipedia.org/wiki/Finland "Finland") becomes [a member](https://wikipedia.org/wiki/Enlargement_of_NATO "Enlargement of NATO") of [NATO](https://wikipedia.org/wiki/NATO "NATO") after [Turkey](https://wikipedia.org/wiki/Turkey "Turkey") accepts its membership request.
+
+## Year - 2020
+ China holds a [national day of mourning](https://wikipedia.org/wiki/National_day_of_mourning "National day of mourning") for martyrs who died in the fight against the [novel coronavirus disease outbreak](https://wikipedia.org/wiki/COVID-19_pandemic_in_mainland_China "COVID-19 pandemic in mainland China").
 
 ## Year - 2017
- A [bomb explodes](https://wikipedia.org/wiki/2017_St._Petersburg_Metro_bombing "2017 St. Petersburg Metro bombing") in the [St Petersburg](https://wikipedia.org/wiki/St_Petersburg "St Petersburg") metro system, killing 14 and injuring several more people.
-
-## Year - 2016
- The [Panama Papers](https://wikipedia.org/wiki/Panama_Papers "Panama Papers"), a [leak](https://wikipedia.org/wiki/News_leak "News leak") of legal documents, reveals information on 214,488 [offshore companies](https://wikipedia.org/wiki/Offshore_financial_centre "Offshore financial centre").
+ Syria conducts an [air strike](https://wikipedia.org/wiki/Khan_Shaykhun_chemical_attack "Khan Shaykhun chemical attack") on [Khan Shaykhun](https://wikipedia.org/wiki/Khan_Shaykhun "Khan Shaykhun") using [chemical weapons](https://wikipedia.org/wiki/Syria_chemical_weapons_program "Syria chemical weapons program"), killing 89 civilians.
 
 ## Year - 2013
- More than 50 people die in [floods](https://wikipedia.org/wiki/2013_Argentina_floods "2013 Argentina floods") resulting from record-breaking rainfall in [La Plata](https://wikipedia.org/wiki/La_Plata "La Plata") and [Buenos Aires](https://wikipedia.org/wiki/Buenos_Aires "Buenos Aires"), Argentina.
+ 74 people are killed in a [building collapse](https://wikipedia.org/wiki/2013_Thane_building_collapse "2013 Thane building collapse") in [Thane](https://wikipedia.org/wiki/Thane "Thane"), India.
+
+## Year - 2011
+ [Georgian Airways Flight 834](https://wikipedia.org/wiki/Georgian_Airways_Flight_834 "Georgian Airways Flight 834") crashes at [N'djili Airport](https://wikipedia.org/wiki/N%27djili_Airport "N'djili Airport") in [Kinshasa](https://wikipedia.org/wiki/Kinshasa "Kinshasa"), killing 32.
 
 ## Year - 2010
- [Apple Inc.](https://wikipedia.org/wiki/Apple_Inc. "Apple Inc.") released the [first generation iPad](https://wikipedia.org/wiki/IPad_(1st_generation) "IPad (1st generation)"), a [tablet computer](https://wikipedia.org/wiki/Tablet_computer "Tablet computer").
+ [A magnitude 7.2 earthquake](https://wikipedia.org/wiki/2010_Baja_California_earthquake "2010 Baja California earthquake") hits south of the [Mexico-USA border](https://wikipedia.org/wiki/Mexico-United_States_border "Mexico-United States border"), killing at least two and damaging buildings across the two countries.
 
 ## Year - 2009
- Jiverly Antares Wong [opens fire](https://wikipedia.org/wiki/2009_Binghamton_shooting "2009 Binghamton shooting") at the [American Civic Association](https://wikipedia.org/wiki/American_Civic_Association_(Binghamton) "American Civic Association (Binghamton)") immigration center in [Binghamton, New York](https://wikipedia.org/wiki/Binghamton,_New_York "Binghamton, New York"), killing thirteen and wounding four before committing suicide.
+ [France](https://wikipedia.org/wiki/France "France") announces its return to full participation of its military forces within [NATO](https://wikipedia.org/wiki/NATO "NATO").
 
-## Year - 2008
- [Texas](https://wikipedia.org/wiki/Texas "Texas") law enforcement cordons off the [FLDS](https://wikipedia.org/wiki/Fundamentalist_Church_of_Jesus_Christ_of_Latter-Day_Saints "Fundamentalist Church of Jesus Christ of Latter-Day Saints")'s [YFZ Ranch](https://wikipedia.org/wiki/YFZ_Ranch "YFZ Ranch"). Eventually 533 women and children will be taken into state custody.
-
-## Year - 2008
- [ATA Airlines](https://wikipedia.org/wiki/ATA_Airlines "ATA Airlines"), once one of the ten largest U.S. passenger airlines and largest charter airline, files for bankruptcy for the second time in five years and ceases all operations.
-
-## Year - 2007
- [Conventional-Train World Speed Record](https://wikipedia.org/wiki/TGV_world_speed_record#Record_of_2007 "TGV world speed record"): A French [TGV](https://wikipedia.org/wiki/TGV "TGV") train on the [LGV Est](https://wikipedia.org/wiki/LGV_Est "LGV Est") high speed line sets an official new world speed record of 574.8 km/h (159.6 m/s, 357.2 mph).
-
-## Year - 2004
- [Islamic terrorists](https://wikipedia.org/wiki/Islamic_terrorists "Islamic terrorists") involved in the [2004 Madrid train bombings](https://wikipedia.org/wiki/2004_Madrid_train_bombings "2004 Madrid train bombings") are trapped by the police in their apartment and kill themselves.
-
-## Year - 2000
- <i>[United States v. Microsoft Corp.](https://wikipedia.org/wiki/United_States_v._Microsoft_Corp._(2001) "United States v. Microsoft Corp. (2001)")</i>: [Microsoft](https://wikipedia.org/wiki/Microsoft "Microsoft") is ruled to have violated [United States antitrust law](https://wikipedia.org/wiki/United_States_antitrust_law "United States antitrust law") by keeping "an oppressive thumb" on its competitors.
+## Year - 2002
+ The [MPLA](https://wikipedia.org/wiki/MPLA "MPLA") government of Angola and [UNITA](https://wikipedia.org/wiki/UNITA "UNITA") rebels sign a peace treaty ending the [Angolan Civil War](https://wikipedia.org/wiki/Angolan_Civil_War "Angolan Civil War").
 
 ## Year - 1997
- The [Thalit massacre](https://wikipedia.org/wiki/Thalit_massacre "Thalit massacre") begins in [Algeria](https://wikipedia.org/wiki/Algeria "Algeria"); all but one of the 53 inhabitants of [Thalit](https://wikipedia.org/wiki/Thalit "Thalit") are killed by guerrillas.
+ Space Shuttle program: [Space Shuttle <i>Columbia</i>](https://wikipedia.org/wiki/Space_Shuttle_Columbia "Space Shuttle Columbia") is launched on [STS-83](https://wikipedia.org/wiki/STS-83 "STS-83"). However, the mission is later cut short due to a fuel cell problem.
 
 ## Year - 1996
- A [United States Air Force](https://wikipedia.org/wiki/United_States_Air_Force "United States Air Force") [Boeing T-43](https://wikipedia.org/wiki/Boeing_T-43 "Boeing T-43") [crashes](https://wikipedia.org/wiki/1996_Croatia_USAF_CT-43_crash "1996 Croatia USAF CT-43 crash") near [Dubrovnik Airport](https://wikipedia.org/wiki/Dubrovnik_Airport "Dubrovnik Airport") in [Croatia](https://wikipedia.org/wiki/Croatia "Croatia"), killing 35, including [Secretary of Commerce](https://wikipedia.org/wiki/United_States_Secretary_of_Commerce "United States Secretary of Commerce") [Ron Brown](https://wikipedia.org/wiki/Ron_Brown "Ron Brown").
+ [Comet Hyakutake](https://wikipedia.org/wiki/Comet_Hyakutake "Comet Hyakutake") is imaged by the USA Asteroid Orbiter [Near Earth Asteroid Rendezvous](https://wikipedia.org/wiki/Near_Earth_Asteroid_Rendezvous "Near Earth Asteroid Rendezvous").
 
-## Year - 1996
- Suspected "Unabomber" [Theodore Kaczynski](https://wikipedia.org/wiki/Theodore_Kaczynski "Theodore Kaczynski") is captured at his [Montana](https://wikipedia.org/wiki/Montana "Montana") cabin in the United States.
+## Year - 1994
+ Three people are killed when [KLM Cityhopper Flight 433](https://wikipedia.org/wiki/KLM_Cityhopper_Flight_433 "KLM Cityhopper Flight 433") crashes at [Amsterdam Airport Schiphol](https://wikipedia.org/wiki/Amsterdam_Airport_Schiphol "Amsterdam Airport Schiphol").
 
-## Year - 1993
- The outcome of the [Grand National](https://wikipedia.org/wiki/Grand_National "Grand National") horse race is declared void for the first (and only) time
+## Year - 1991
+ Forty-one people are [taken hostage](https://wikipedia.org/wiki/1991_Sacramento_hostage_crisis "1991 Sacramento hostage crisis") inside a [Good Guys! Electronics](https://wikipedia.org/wiki/Good_Guys_(American_company) "Good Guys (American company)") store in [Sacramento](https://wikipedia.org/wiki/Sacramento "Sacramento"), [California](https://wikipedia.org/wiki/California "California"). Three of the hostage takers and three hostages are killed.
 
-## Year - 1989
- The [US Supreme Court](https://wikipedia.org/wiki/US_supreme_court "US supreme court") upholds the jurisdictional rights of [tribal courts](https://wikipedia.org/wiki/Tribal_court "Tribal court") under the [Indian Child Welfare Act of 1978](https://wikipedia.org/wiki/Indian_Child_Welfare_Act "Indian Child Welfare Act") in [Mississippi Choctaw Band v. Holyfield](https://wikipedia.org/wiki/Mississippi_Band_of_Choctaw_Indians_v._Holyfield "Mississippi Band of Choctaw Indians v. Holyfield").
+## Year - 1991
+ Senator [John Heinz](https://wikipedia.org/wiki/John_Heinz "John Heinz") of [Pennsylvania](https://wikipedia.org/wiki/Pennsylvania "Pennsylvania") and six others are killed when a helicopter [collides with their airplane](https://wikipedia.org/wiki/Merion_air_disaster "Merion air disaster") over an elementary school in [Merion, Pennsylvania](https://wikipedia.org/wiki/Merion,_Pennsylvania "Merion, Pennsylvania").
+
+## Year - 1990
+ The current [flag of Hong Kong](https://wikipedia.org/wiki/Flag_of_Hong_Kong "Flag of Hong Kong") is adopted for post-colonial Hong Kong during the Third Session of the [Seventh](https://wikipedia.org/wiki/7th_National_People%27s_Congress "7th National People's Congress") [National People's Congress](https://wikipedia.org/wiki/National_People%27s_Congress "National People's Congress").
+
+## Year - 1988
+ [Governor](https://wikipedia.org/wiki/List_of_Governors_of_Arizona "List of Governors of Arizona") [Evan Mecham](https://wikipedia.org/wiki/Evan_Mecham "Evan Mecham") of [Arizona](https://wikipedia.org/wiki/Arizona "Arizona") is convicted in his [impeachment trial](https://wikipedia.org/wiki/Impeachment_trial "Impeachment trial") and removed from office.
+
+## Year - 1987
+ [Garuda Indonesia Flight 032](https://wikipedia.org/wiki/Garuda_Indonesia_Flight_035 "Garuda Indonesia Flight 035") crashes at [Medan Airport](https://wikipedia.org/wiki/Soewondo_Air_Force_Base "Soewondo Air Force Base"), killing 23.
+
+## Year - 1984
+ President [Ronald Reagan](https://wikipedia.org/wiki/Ronald_Reagan "Ronald Reagan") calls for an international ban on [chemical weapons](https://wikipedia.org/wiki/Chemical_weapon "Chemical weapon").
+
+## Year - 1983
+ [Space Shuttle program](https://wikipedia.org/wiki/Space_Shuttle_program "Space Shuttle program"): Space Shuttle <i>[Challenger](https://wikipedia.org/wiki/Space_Shuttle_Challenger "Space Shuttle Challenger")</i> makes its maiden voyage into space on [STS-6](https://wikipedia.org/wiki/STS-6 "STS-6").
 
 ## Year - 1981
- The [Osborne 1](https://wikipedia.org/wiki/Osborne_1 "Osborne 1"), the first successful [portable computer](https://wikipedia.org/wiki/Portable_computer "Portable computer"), is unveiled at the [West Coast Computer Faire](https://wikipedia.org/wiki/West_Coast_Computer_Faire "West Coast Computer Faire") in [San Francisco](https://wikipedia.org/wiki/San_Francisco "San Francisco").
+ [Iran-Iraq War](https://wikipedia.org/wiki/Iran%E2%80%93Iraq_War "Iran-Iraq War"): The [Islamic Republic of Iran Air Force](https://wikipedia.org/wiki/Islamic_Republic_of_Iran_Air_Force "Islamic Republic of Iran Air Force") mounts an [attack on H-3 Airbase](https://wikipedia.org/wiki/Attack_on_H3 "Attack on H3") and destroys about 50 Iraqi aircraft.
 
-## Year - 1980
- [US Congress](https://wikipedia.org/wiki/Us_congress "Us congress") restores a federal trust relationship with the 501 members of the [Shivwits](https://wikipedia.org/wiki/Shivwits_Band_of_Paiutes "Shivwits Band of Paiutes"), Kanosh, Koosharem, and the Indian Peaks and Cedar City bands of the [Paiute](https://wikipedia.org/wiki/Paiute "Paiute") people of Utah.
+## Year - 1979
+ Prime Minister [Zulfikar Ali Bhutto](https://wikipedia.org/wiki/Zulfikar_Ali_Bhutto "Zulfikar Ali Bhutto") of Pakistan is executed.
+
+## Year - 1977
+ [Southern Airways Flight 242](https://wikipedia.org/wiki/Southern_Airways_Flight_242 "Southern Airways Flight 242") crashes in [New Hope, Paulding County, Georgia](https://wikipedia.org/wiki/New_Hope,_Paulding_County,_Georgia "New Hope, Paulding County, Georgia"), killing 72.
 
 ## Year - 1975
- [Bobby Fischer](https://wikipedia.org/wiki/Bobby_Fischer "Bobby Fischer") [refuses to play](https://wikipedia.org/wiki/World_Chess_Championship_1975 "World Chess Championship 1975") in a [chess](https://wikipedia.org/wiki/Chess "Chess") match against [Anatoly Karpov](https://wikipedia.org/wiki/Anatoly_Karpov "Anatoly Karpov"), giving Karpov the title of World Champion by default.
+ [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): A United States Air Force [Lockheed C-5A Galaxy](https://wikipedia.org/wiki/Lockheed_C-5_Galaxy "Lockheed C-5 Galaxy") [transporting orphans](https://wikipedia.org/wiki/Operation_Babylift "Operation Babylift"), [crashes](https://wikipedia.org/wiki/1975_T%C3%A2n_S%C6%A1n_Nh%E1%BB%A9t_C-5_accident "1975 Tân Sơn Nhứt C-5 accident") near [Saigon](https://wikipedia.org/wiki/Ho_Chi_Minh_City "Ho Chi Minh City"), [South Vietnam](https://wikipedia.org/wiki/South_Vietnam "South Vietnam") shortly after takeoff, killing 172 people.
 
 ## Year - 1975
- Vietnam War: [Operation Babylift](https://wikipedia.org/wiki/Operation_Babylift "Operation Babylift"), a mass evacuation of children in the closing stages of the war begins.
-
-## Year - 1974
- [The 1974 Super Outbreak](https://wikipedia.org/wiki/1974_Super_Outbreak "1974 Super Outbreak") occurs, the second largest tornado outbreak in recorded history (after the [2011 Super Outbreak](https://wikipedia.org/wiki/2011_Super_Outbreak "2011 Super Outbreak")). The death toll is 315, with nearly 5,500 injured.
+ [Microsoft](https://wikipedia.org/wiki/Microsoft "Microsoft") is founded as a partnership between [Bill Gates](https://wikipedia.org/wiki/Bill_Gates "Bill Gates") and [Paul Allen](https://wikipedia.org/wiki/Paul_Allen "Paul Allen") in [Albuquerque, New Mexico](https://wikipedia.org/wiki/Albuquerque,_New_Mexico "Albuquerque, New Mexico").
 
 ## Year - 1973
- [Martin Cooper](https://wikipedia.org/wiki/Martin_Cooper_(inventor) "Martin Cooper (inventor)") of [Motorola](https://wikipedia.org/wiki/Motorola "Motorola") makes the [first handheld mobile phone call](https://wikipedia.org/wiki/History_of_mobile_phones "History of mobile phones") to [Joel S. Engel](https://wikipedia.org/wiki/Joel_S._Engel "Joel S. Engel") of [Bell Labs](https://wikipedia.org/wiki/Bell_Labs "Bell Labs").
+ A [Lockheed C-141 Starlifter](https://wikipedia.org/wiki/Lockheed_C-141_Starlifter "Lockheed C-141 Starlifter"), dubbed the <i>[Hanoi Taxi](https://wikipedia.org/wiki/Hanoi_Taxi "Hanoi Taxi")</i>, makes the last flight of [Operation Homecoming](https://wikipedia.org/wiki/Operation_Homecoming "Operation Homecoming").
+
+## Year - 1973
+ The Twin Towers of the [World Trade Center](https://wikipedia.org/wiki/World_Trade_Center_(1973%E2%80%932001) "World Trade Center (1973-2001)") in New York City are officially dedicated.
 
 ## Year - 1969
- [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): [United States Secretary of Defense](https://wikipedia.org/wiki/United_States_Secretary_of_Defense "United States Secretary of Defense") [Melvin Laird](https://wikipedia.org/wiki/Melvin_Laird "Melvin Laird") announces that the United States will start to "[Vietnamize](https://wikipedia.org/wiki/Vietnamization "Vietnamization")" the war effort.
+ Dr. [Denton Cooley](https://wikipedia.org/wiki/Denton_Cooley "Denton Cooley") [implants](https://wikipedia.org/wiki/Implant_(medicine) "Implant (medicine)") the first temporary [artificial heart](https://wikipedia.org/wiki/Artificial_heart "Artificial heart").
 
 ## Year - 1968
- [Martin Luther King Jr.](https://wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr.") delivers his "[I've Been to the Mountaintop](https://wikipedia.org/wiki/I%27ve_Been_to_the_Mountaintop "I've Been to the Mountaintop")" speech; he was assassinated the next day.
+ [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program"): [NASA](https://wikipedia.org/wiki/NASA "NASA") launches [Apollo 6](https://wikipedia.org/wiki/Apollo_6 "Apollo 6").
 
-## Year - 1956
- [Hudsonville-Standale tornado](https://wikipedia.org/wiki/Hudsonville%E2%80%93Standale_tornado_of_April_1956 "Hudsonville-Standale tornado of April 1956"): The western half of the [Lower Peninsula of Michigan](https://wikipedia.org/wiki/Lower_Peninsula_of_Michigan "Lower Peninsula of Michigan") is struck by a deadly [F5](https://wikipedia.org/wiki/Fujita_scale "Fujita scale") tornado.
+## Year - 1968
+ Martin Luther King Jr. is [assassinated](https://wikipedia.org/wiki/Assassination_of_Martin_Luther_King_Jr. "Assassination of Martin Luther King Jr.") by [James Earl Ray](https://wikipedia.org/wiki/James_Earl_Ray "James Earl Ray") at a [motel](https://wikipedia.org/wiki/National_Civil_Rights_Museum "National Civil Rights Museum") in [Memphis, Tennessee](https://wikipedia.org/wiki/Memphis,_Tennessee "Memphis, Tennessee").
 
-## Year - 1955
- The [American Civil Liberties Union](https://wikipedia.org/wiki/American_Civil_Liberties_Union "American Civil Liberties Union") announces it will defend [Allen Ginsberg](https://wikipedia.org/wiki/Allen_Ginsberg "Allen Ginsberg")'s book <i>[Howl](https://wikipedia.org/wiki/Howl_(poem) "Howl (poem)")</i> against [obscenity](https://wikipedia.org/wiki/Obscenity "Obscenity") charges.
+## Year - 1967
+ [Martin Luther King Jr.](https://wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr.") delivers his "[Beyond Vietnam: A Time to Break Silence](https://wikipedia.org/wiki/Beyond_Vietnam:_A_Time_to_Break_Silence "Beyond Vietnam: A Time to Break Silence")" speech in New York City's [Riverside Church](https://wikipedia.org/wiki/Riverside_Church "Riverside Church").
 
-## Year - 1948
- In [Jeju Province](https://wikipedia.org/wiki/Jeju_Province "Jeju Province"), South Korea, a civil-war-like period of violence and [human rights abuses](https://wikipedia.org/wiki/Human_rights_abuses "Human rights abuses") known as the [Jeju uprising](https://wikipedia.org/wiki/Jeju_uprising "Jeju uprising") begins.
+## Year - 1964
+ [The Beatles](https://wikipedia.org/wiki/The_Beatles "The Beatles") occupy the top five positions on the [<i>Billboard</i> Hot 100](https://wikipedia.org/wiki/Billboard_Hot_100 "Billboard Hot 100") pop chart.
 
-## Year - 1948
- [Cold War](https://wikipedia.org/wiki/Cold_War "Cold War"): U.S. President [Harry S. Truman](https://wikipedia.org/wiki/Harry_S._Truman "Harry S. Truman") signs the [Marshall Plan](https://wikipedia.org/wiki/Marshall_Plan "Marshall Plan"), authorizing $5 billion in aid for 16 countries.
+## Year - 1963
+ <i>[Bye Bye Birdie](https://wikipedia.org/wiki/Bye_Bye_Birdie_(1963_film) "Bye Bye Birdie (1963 film)")</i>, a musical romantic comedy film directed by [George Sidney](https://wikipedia.org/wiki/George_Sidney "George Sidney"), was released.
+
+## Year - 1960
+ [France](https://wikipedia.org/wiki/France "France") agrees to grant independence to the [Mali Federation](https://wikipedia.org/wiki/Mali_Federation "Mali Federation"), a union of [Senegal](https://wikipedia.org/wiki/Senegal "Senegal") and [French Sudan](https://wikipedia.org/wiki/French_Sudan "French Sudan").
+
+## Year - 1958
+ The [CND](https://wikipedia.org/wiki/Campaign_for_Nuclear_Disarmament "Campaign for Nuclear Disarmament") [peace symbol](https://wikipedia.org/wiki/Peace_symbol "Peace symbol") is displayed in public for the first time in [London](https://wikipedia.org/wiki/London "London").
+
+## Year - 1949
+ [Cold War](https://wikipedia.org/wiki/Cold_War "Cold War"): Twelve nations sign the [North Atlantic Treaty](https://wikipedia.org/wiki/North_Atlantic_Treaty "North Atlantic Treaty") creating the [North Atlantic Treaty Organization](https://wikipedia.org/wiki/NATO "NATO").
 
 ## Year - 1946
- Japanese [Lt. General](https://wikipedia.org/wiki/Lt._General "Lt. General") [Masaharu Homma](https://wikipedia.org/wiki/Masaharu_Homma "Masaharu Homma") is executed in the Philippines for leading the [Bataan Death March](https://wikipedia.org/wiki/Bataan_Death_March "Bataan Death March").
+ Greek judge and archeologist [Panagiotis Poulitsas](https://wikipedia.org/wiki/Panagiotis_Poulitsas "Panagiotis Poulitsas") is appointed [Prime Minister of Greece](https://wikipedia.org/wiki/Prime_Minister_of_Greece "Prime Minister of Greece") in the midst of the [Greek Civil War](https://wikipedia.org/wiki/Greek_Civil_War "Greek Civil War").
 
-## Year - 1942
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Japanese](https://wikipedia.org/wiki/Empire_of_Japan "Empire of Japan") forces begin an assault on the United States and [Filipino](https://wikipedia.org/wiki/Commonwealth_of_the_Philippines "Commonwealth of the Philippines") troops on the [Bataan Peninsula](https://wikipedia.org/wiki/Battle_of_Bataan "Battle of Bataan").
+## Year - 1945
+ World War II: Soviet [Red Army](https://wikipedia.org/wiki/Red_Army "Red Army") troops liberate [Hungary](https://wikipedia.org/wiki/Hungary "Hungary") from [German occupation](https://wikipedia.org/wiki/Government_of_National_Unity_(Hungary) "Government of National Unity (Hungary)") and occupy the country themselves.
 
-## Year - 1936
- [Bruno Richard Hauptmann](https://wikipedia.org/wiki/Bruno_Richard_Hauptmann "Bruno Richard Hauptmann") is executed for the kidnapping and death of [Charles Augustus Lindbergh Jr.](https://wikipedia.org/wiki/Lindbergh_kidnapping "Lindbergh kidnapping"), the infant son of pilot [Charles Lindbergh](https://wikipedia.org/wiki/Charles_Lindbergh "Charles Lindbergh").
+## Year - 1945
+ World War II: United States Army troops [capture Kassel](https://wikipedia.org/wiki/Battle_of_Kassel_(1945) "Battle of Kassel (1945)").
+
+## Year - 1945
+ World War II: [United States Army](https://wikipedia.org/wiki/United_States_Army "United States Army") troops liberate [Ohrdruf forced labor camp](https://wikipedia.org/wiki/Ohrdruf_forced_labor_camp "Ohrdruf forced labor camp") in Germany.
+
+## Year - 1944
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [First bombardment of oil refineries in Bucharest by Anglo-American forces](https://wikipedia.org/wiki/Bombing_of_Bucharest_in_World_War_II "Bombing of Bucharest in World War II") kills 3,000 civilians.
 
 ## Year - 1933
- First flight over [Mount Everest](https://wikipedia.org/wiki/Mount_Everest "Mount Everest"), the British [Houston-Mount Everest Flight Expedition](https://wikipedia.org/wiki/Houston-Mount_Everest_Flight_Expedition "Houston-Mount Everest Flight Expedition"), led by the [Marquis of Clydesdale](https://wikipedia.org/wiki/Douglas_Douglas-Hamilton,_14th_Duke_of_Hamilton "Douglas Douglas-Hamilton, 14th Duke of Hamilton") and funded by [Lucy, Lady Houston](https://wikipedia.org/wiki/Lucy,_Lady_Houston "Lucy, Lady Houston").
+ [U.S. Navy](https://wikipedia.org/wiki/United_States_Navy "United States Navy") [airship](https://wikipedia.org/wiki/Airship "Airship") [USS <i>Akron</i>](https://wikipedia.org/wiki/USS_Akron "USS Akron") is wrecked off the [New Jersey](https://wikipedia.org/wiki/New_Jersey "New Jersey") coast due to severe weather.
 
-## Year - 1922
- [Joseph Stalin](https://wikipedia.org/wiki/Joseph_Stalin "Joseph Stalin") becomes the first [General Secretary of the Communist Party of the Soviet Union](https://wikipedia.org/wiki/General_Secretary_of_the_Communist_Party_of_the_Soviet_Union "General Secretary of the Communist Party of the Soviet Union").
+## Year - 1925
+ The [Schutzstaffel](https://wikipedia.org/wiki/Schutzstaffel "Schutzstaffel") (SS) is founded under Adolf Hitler's [Nazi Party](https://wikipedia.org/wiki/Nazi_Party "Nazi Party") in [Germany](https://wikipedia.org/wiki/Weimar_Republic "Weimar Republic").
 
 ## Year - 1920
- Attempts are made to carry out the failed [assassination attempt on General Mannerheim](https://wikipedia.org/wiki/Carl_Gustaf_Emil_Mannerheim#The_1920_assassination_attempt "Carl Gustaf Emil Mannerheim"), led by Aleksander Weckman by order of [Eino Rahja](https://wikipedia.org/wiki/Eino_Rahja "Eino Rahja"), during the [White Guard](https://wikipedia.org/wiki/White_Guard_(Finland) "White Guard (Finland)") parade in [Tampere](https://wikipedia.org/wiki/Tampere "Tampere"), Finland.
+ The four-day [Nebi Musa riots](https://wikipedia.org/wiki/1920_Nebi_Musa_riots "1920 Nebi Musa riots") commence.
 
-## Year - 1895
- The trial in the [libel](https://wikipedia.org/wiki/Libel "Libel") case brought by [Oscar Wilde](https://wikipedia.org/wiki/Oscar_Wilde "Oscar Wilde") begins, eventually resulting in his imprisonment on charges of [homosexuality](https://wikipedia.org/wiki/Homosexuality "Homosexuality").
+## Year - 1913
+ [First Balkan War](https://wikipedia.org/wiki/First_Balkan_War "First Balkan War"): Greek aviator [Emmanouil Argyropoulos](https://wikipedia.org/wiki/Emmanouil_Argyropoulos "Emmanouil Argyropoulos") becomes the first pilot to die in the [Hellenic Air Force](https://wikipedia.org/wiki/Hellenic_Air_Force "Hellenic Air Force") when his plane crashes.
 
-## Year - 1888
- [Jack the Ripper](https://wikipedia.org/wiki/Jack_the_Ripper "Jack the Ripper"): The first of 11 [unsolved brutal murders](https://wikipedia.org/wiki/Whitechapel_murders "Whitechapel murders") of women committed in or near the impoverished [Whitechapel](https://wikipedia.org/wiki/Whitechapel "Whitechapel") district in the [East End of London](https://wikipedia.org/wiki/East_End_of_London "East End of London"), occurs.
+## Year - 1905
+ In India, [an earthquake](https://wikipedia.org/wiki/1905_Kangra_earthquake "1905 Kangra earthquake") hits the [Kangra Valley](https://wikipedia.org/wiki/Kangra_Valley "Kangra Valley"), killing 20,000, and destroying most buildings in [Kangra](https://wikipedia.org/wiki/Kangra,_Himachal_Pradesh "Kangra, Himachal Pradesh"), [McLeod Ganj](https://wikipedia.org/wiki/McLeod_Ganj "McLeod Ganj") and [Dharamshala](https://wikipedia.org/wiki/Dharamshala "Dharamshala").
 
-## Year - 1885
- [Gottlieb Daimler](https://wikipedia.org/wiki/Gottlieb_Daimler "Gottlieb Daimler") is granted a German [patent](https://wikipedia.org/wiki/Patent "Patent") for a light, high-speed, four-stroke [engine](https://wikipedia.org/wiki/Engine "Engine"), which he uses seven months later to create the world's first motorcycle, the [Daimler Reitwagen](https://wikipedia.org/wiki/Daimler_Reitwagen "Daimler Reitwagen").
+## Year - 1904
+ Two M<sub>s</sub>  [~7.1 earthquakes](https://wikipedia.org/wiki/1904_Kresna_earthquakes "1904 Kresna earthquakes"), among the largest in Europe, strikes Bulgaria, killing over 200 people and causing destruction.
 
-## Year - 1882
- [American Old West](https://wikipedia.org/wiki/American_Old_West "American Old West"): [Robert Ford](https://wikipedia.org/wiki/Robert_Ford_(outlaw) "Robert Ford (outlaw)") kills [Jesse James](https://wikipedia.org/wiki/Jesse_James "Jesse James").
+## Year - 1887
+ [Argonia, Kansas](https://wikipedia.org/wiki/Argonia,_Kansas "Argonia, Kansas") elects [Susanna M. Salter](https://wikipedia.org/wiki/Susanna_M._Salter "Susanna M. Salter") as the first female mayor in the United States.
+
+## Year - 1866
+ [Alexander II of Russia](https://wikipedia.org/wiki/Alexander_II_of_Russia "Alexander II of Russia") narrowly escapes an assassination attempt by [Dmitry Karakozov](https://wikipedia.org/wiki/Dmitry_Karakozov "Dmitry Karakozov") in the city of [Saint Petersburg](https://wikipedia.org/wiki/Saint_Petersburg "Saint Petersburg").
 
 ## Year - 1865
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") forces capture [Richmond, Virginia](https://wikipedia.org/wiki/Richmond,_Virginia "Richmond, Virginia"), the capital of the [Confederate States of America](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America").
+ [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): A day after [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") forces capture [Richmond, Virginia](https://wikipedia.org/wiki/Richmond,_Virginia "Richmond, Virginia"), U.S. President [Abraham Lincoln](https://wikipedia.org/wiki/Abraham_Lincoln "Abraham Lincoln") visits the [Confederate](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America") capital.
 
 ## Year - 1860
- The first successful United States [Pony Express](https://wikipedia.org/wiki/Pony_Express "Pony Express") run from [St. Joseph, Missouri](https://wikipedia.org/wiki/St._Joseph,_Missouri "St. Joseph, Missouri"), to [Sacramento, California](https://wikipedia.org/wiki/Sacramento,_California "Sacramento, California"), begins.
+ The declaration on the introduction of the [Finnish markka](https://wikipedia.org/wiki/Finnish_markka "Finnish markka") as an official currency is read in different parts of the [Grand Duchy of Finland](https://wikipedia.org/wiki/Grand_Duchy_of_Finland "Grand Duchy of Finland").
 
-## Year - 1851
- [Rama IV](https://wikipedia.org/wiki/Mongkut "Mongkut") is crowned [King](https://wikipedia.org/wiki/Monarchy_of_Thailand "Monarchy of Thailand") of [Thailand](https://wikipedia.org/wiki/Thailand "Thailand") after the death of his half-brother, [Rama III](https://wikipedia.org/wiki/Rama_III "Rama III").
+## Year - 1841
+ [William Henry Harrison](https://wikipedia.org/wiki/William_Henry_Harrison "William Henry Harrison") dies of [pneumonia](https://wikipedia.org/wiki/Pneumonia "Pneumonia"), becoming the first [President of the United States](https://wikipedia.org/wiki/President_of_the_United_States "President of the United States") to die in office, and setting the record for the briefest administration. Vice President [John Tyler](https://wikipedia.org/wiki/John_Tyler "John Tyler") succeeds Harrison as President.
 
-## Year - 1721
- [Robert Walpole](https://wikipedia.org/wiki/Robert_Walpole "Robert Walpole") becomes, in effect, the first [Prime Minister of Great Britain](https://wikipedia.org/wiki/Prime_Minister_of_Great_Britain "Prime Minister of Great Britain"), though he himself denied that title.
+## Year - 1818
+ The [United States Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress"), affirming the [Second Continental Congress](https://wikipedia.org/wiki/Second_Continental_Congress "Second Continental Congress"), adopts the [flag of the United States](https://wikipedia.org/wiki/Flag_of_the_United_States "Flag of the United States") with 13 red and white stripes and one star for each state (20 at that time).
 
-## Year - 1589
- The [janissaries](https://wikipedia.org/wiki/Janissaries "Janissaries") [revolt](https://wikipedia.org/wiki/Beylerbeyi_event "Beylerbeyi event") in response to the debasement of coins.
+## Year - 1814
+ [Napoleon](https://wikipedia.org/wiki/Napoleon "Napoleon") abdicates (conditionally) for the first time and names his son [Napoleon II](https://wikipedia.org/wiki/Napoleon_II "Napoleon II") as [Emperor of the French](https://wikipedia.org/wiki/Emperor_of_the_French "Emperor of the French"), followed by unconditional abdication two days later.
 
-## Year - 1559
- The second of two treaties making up the [Peace of Cateau-Cambrésis](https://wikipedia.org/wiki/Peace_of_Cateau-Cambr%C3%A9sis "Peace of Cateau-Cambrésis") is signed, ending the [Italian Wars](https://wikipedia.org/wiki/Italian_Wars "Italian Wars").
+## Year - 1796
+ [Georges Cuvier](https://wikipedia.org/wiki/Georges_Cuvier "Georges Cuvier") delivers the first [paleontological](https://wikipedia.org/wiki/Paleontology "Paleontology") lecture.
 
-## Year - 1077
- The Patriarchate of Friûl, the first [Friulian](https://wikipedia.org/wiki/Friuli "Friuli") state, is created.
+## Year - 1660
+ [Declaration of Breda](https://wikipedia.org/wiki/Declaration_of_Breda "Declaration of Breda") by King [Charles II of Great Britain](https://wikipedia.org/wiki/Charles_II_of_Great_Britain "Charles II of Great Britain") promises, among other things, a general pardon to all royalists and opponents of the monarchy for crimes committed during the [English Civil War](https://wikipedia.org/wiki/English_Civil_War "English Civil War") and the [Interregnum](https://wikipedia.org/wiki/Interregnum_(England) "Interregnum (England)").
 
-## Year - 1043
- [Edward the Confessor](https://wikipedia.org/wiki/Edward_the_Confessor "Edward the Confessor") is crowned [King of England](https://wikipedia.org/wiki/King_of_England "King of England").
+## Year - 1609
+ [Moriscos](https://wikipedia.org/wiki/Moriscos "Moriscos") are expelled from the [Kingdom of Valencia](https://wikipedia.org/wiki/Kingdom_of_Valencia "Kingdom of Valencia").
 
-## Year - 686
-[Maya](https://wikipedia.org/wiki/Maya_civilization "Maya civilization") king [Yuknoom Yich'aak K'ahk'](https://wikipedia.org/wiki/Yuknoom_Yich%27aak_K%27ahk%27 "Yuknoom Yich'aak K'ahk'") assumes the crown of [Calakmul](https://wikipedia.org/wiki/Calakmul "Calakmul").
+## Year - 1581
+ [Francis Drake](https://wikipedia.org/wiki/Francis_Drake "Francis Drake") is knighted by Queen [Elizabeth I](https://wikipedia.org/wiki/Elizabeth_I "Elizabeth I") for completing a [circumnavigation](https://wikipedia.org/wiki/Francis_Drake%27s_circumnavigation "Francis Drake's circumnavigation") of the world.
+
+## Year - 1423
+ Death of the Venetian [Doge](https://wikipedia.org/wiki/Doge_(title) "Doge (title)") [Tommaso Mocenigo](https://wikipedia.org/wiki/Tommaso_Mocenigo "Tommaso Mocenigo"), under whose rule victories were achieved against the [Kingdom of Hungary](https://wikipedia.org/wiki/Kingdom_of_Hungary "Kingdom of Hungary") and against the [Ottoman Empire](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire") at the [Battle of Gallipoli (1416)](https://wikipedia.org/wiki/Battle_of_Gallipoli_(1416) "Battle of Gallipoli (1416)").
+
+## Year - 1268
+ A [five-year Byzantine-Venetian peace treaty](https://wikipedia.org/wiki/Byzantine%E2%80%93Venetian_treaty_of_1268 "Byzantine-Venetian treaty of 1268") is concluded between Venetian envoys and Emperor [Michael VIII Palaiologos](https://wikipedia.org/wiki/Michael_VIII_Palaiologos "Michael VIII Palaiologos").
+
+## Year - 801
+King [Louis the Pious](https://wikipedia.org/wiki/Louis_the_Pious "Louis the Pious") captures [Barcelona](https://wikipedia.org/wiki/Barcelona "Barcelona") from the [Moors](https://wikipedia.org/wiki/Moors "Moors") after [a siege](https://wikipedia.org/wiki/Siege_of_Barcelona_(801) "Siege of Barcelona (801)") of several months.
+
+## Year - 619
+The Bijapur-Mumbai inscription is issued by [Pulakeshin II](https://wikipedia.org/wiki/Pulakeshin_II "Pulakeshin II"), describing the [Battle of Narmada](https://wikipedia.org/wiki/Battle_of_Narmada "Battle of Narmada").
+
+## Year - 611
+Maya king [Uneh Chan](https://wikipedia.org/wiki/Scroll_Serpent "Scroll Serpent") of [Calakmul](https://wikipedia.org/wiki/Calakmul "Calakmul") sacks rival city-state [Palenque](https://wikipedia.org/wiki/Palenque "Palenque") in southern Mexico.
+
+## Year - 190
+[Dong Zhuo](https://wikipedia.org/wiki/Dong_Zhuo "Dong Zhuo") has his troops evacuate the capital [Luoyang](https://wikipedia.org/wiki/Luoyang "Luoyang") and burn it to the ground.
+
+## Year - 503 BC
+ - 503 BC - [Roman consul](https://wikipedia.org/wiki/Roman_consul "Roman consul") [Agrippa Menenius Lanatus](https://wikipedia.org/wiki/Agrippa_Menenius_Lanatus_(consul_503_BC) "Agrippa Menenius Lanatus (consul 503 BC)") celebrates a [triumph](https://wikipedia.org/wiki/Roman_triumph "Roman triumph") for a military victory over the [Sabines](https://wikipedia.org/wiki/Sabines "Sabines").
 
 <br />
 
-> _Last Updated: 4/3/2025, 2:43:04 PM (in GMT)_
+> _Last Updated: 4/4/2025, 3:11:26 AM (in GMT)_
