@@ -150,4 +150,4 @@ The [second Fatimid invasion](https://wikipedia.org/wiki/Fatimid_invasion_of_Egy
 
 <br />
 
-> _Last Updated: 4/5/2025, 3:10:19 AM (in GMT)_
+> _Last Updated: 4/5/2025, 2:39:14 PM (in GMT)_
