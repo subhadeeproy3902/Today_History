@@ -78,4 +78,4 @@ The [Battle of Dayr al-'Aqul](https://wikipedia.org/wiki/Battle_of_Dayr_al-%27Aq
 
 <br />
 
-> _Last Updated: 4/8/2025, 3:19:45 AM (in GMT)_
+> _Last Updated: 4/8/2025, 2:44:59 PM (in GMT)_
