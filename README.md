@@ -4,6 +4,9 @@
 5th June 2025
 
 
+## Year - 2025
+ The [Nintendo Switch 2](https://wikipedia.org/wiki/Nintendo_Switch_2 "Nintendo Switch 2") [video game console](https://wikipedia.org/wiki/Video_game_console "Video game console") is released worldwide.
+
 ## Year - 2022
  A [constitutional referendum](https://wikipedia.org/wiki/2022_Kazakh_constitutional_referendum "2022 Kazakh constitutional referendum") is held in Kazakhstan following [violent protests and civil unrest](https://wikipedia.org/wiki/2022_Kazakh_unrest "2022 Kazakh unrest") against the government.
 
@@ -205,6 +208,9 @@
 ## Year - 1086
  [Tutush](https://wikipedia.org/wiki/Tutush_I "Tutush I"), brother of [Seljuk sultan](https://wikipedia.org/wiki/Seljuk_Sultanate "Seljuk Sultanate") [Malik Shah](https://wikipedia.org/wiki/Malik-Shah_I "Malik-Shah I"), defeats [Suleiman ibn Qutalmish](https://wikipedia.org/wiki/Suleiman_ibn_Qutalmish "Suleiman ibn Qutalmish"), the [Turkish ruler of Anatolia](https://wikipedia.org/wiki/Sultanate_of_Rum "Sultanate of Rum") in the [battle of Ain Salm](https://wikipedia.org/wiki/Battle_of_Ain_Salm "Battle of Ain Salm").
 
+## Year - 830
+[Theodora](https://wikipedia.org/wiki/Theodora_(wife_of_Theophilos) "Theodora (wife of Theophilos)") is crowned [Byzantine](https://wikipedia.org/wiki/Byzantine_Empire "Byzantine Empire") empress and marries then emperor [Theophilos](https://wikipedia.org/wiki/Theophilos_(emperor) "Theophilos (emperor)") in the [Hagia Sophia](https://wikipedia.org/wiki/Hagia_Sophia "Hagia Sophia"). She is credited with restoring orthodoxy and the [icons](https://wikipedia.org/wiki/Iconodulism "Iconodulism").
+
 <br />
 
-> _Last Updated: 6/5/2025, 3:34:39 AM (in GMT)_
+> _Last Updated: 6/5/2025, 2:44:46 PM (in GMT)_
