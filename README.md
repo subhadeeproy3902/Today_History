@@ -1,141 +1,135 @@
 
 # Today's History 📜
 
-8th June 2025
+9th June 2025
 
 
-## Year - 2023
- Former US President [Donald Trump](https://wikipedia.org/wiki/Donald_Trump "Donald Trump") is [indicted](https://wikipedia.org/wiki/Federal_prosecution_of_Donald_Trump_(classified_documents_case) "Federal prosecution of Donald Trump (classified documents case)") on federal charges of misusing classified information.
+## Year - 2010
+ At least 40 people are killed and more than 70 wounded in a [suicide bombing](https://wikipedia.org/wiki/Nadahan_wedding_bombing "Nadahan wedding bombing") at a wedding party in [Arghandab](https://wikipedia.org/wiki/Arghandab_District "Arghandab District"), [Kandahar](https://wikipedia.org/wiki/Kandahar "Kandahar").
 
-## Year - 2007
- [Newcastle, New South Wales](https://wikipedia.org/wiki/Newcastle,_New_South_Wales "Newcastle, New South Wales"), Australia, is hit by the State's worst storms and flooding in 30 years resulting in the death of nine people and the grounding of a trade ship, the [MV <i>Pasha Bulker</i>](https://wikipedia.org/wiki/Pasha_Bulker "Pasha Bulker").
+## Year - 2009
+ An [explosion](https://wikipedia.org/wiki/Pearl_Continental_hotel_bombing "Pearl Continental hotel bombing") kills 17 people and injures at least 46 at a hotel in [Peshawar](https://wikipedia.org/wiki/Peshawar "Peshawar"), Pakistan.
 
-## Year - 2004
- The first [Venus Transit](https://wikipedia.org/wiki/Transit_of_Venus,_2004 "Transit of Venus, 2004") in well over a century takes place, the previous one being in [1882](https://wikipedia.org/wiki/1882_transit_of_Venus "1882 transit of Venus").
+## Year - 2008
+ [Two bombs explode](https://wikipedia.org/wiki/2008_Beni_Amrane_bombings "2008 Beni Amrane bombings") at a train station near [Algiers, Algeria](https://wikipedia.org/wiki/Algiers "Algiers"), killing at least 13 people.
 
-## Year - 2001
- [Mamoru Takuma](https://wikipedia.org/wiki/Mamoru_Takuma "Mamoru Takuma") kills eight and injures 15 in [a mass stabbing](https://wikipedia.org/wiki/Ikeda_school_massacre "Ikeda school massacre") at an elementary school in the [Osaka Prefecture](https://wikipedia.org/wiki/Osaka_Prefecture "Osaka Prefecture") of [Japan](https://wikipedia.org/wiki/Japan "Japan").
+## Year - 1999
+ [Kosovo War](https://wikipedia.org/wiki/Kosovo_War "Kosovo War"): The [Federal Republic of Yugoslavia](https://wikipedia.org/wiki/Federal_Republic_of_Yugoslavia "Federal Republic of Yugoslavia") and [NATO](https://wikipedia.org/wiki/NATO "NATO") sign a [peace treaty](https://wikipedia.org/wiki/Kumanovo_Agreement "Kumanovo Agreement").
 
 ## Year - 1995
- Downed U.S. Air Force pilot [Captain](https://wikipedia.org/wiki/Captain_(United_States_O-3) "Captain (United States O-3)") [Scott O'Grady](https://wikipedia.org/wiki/Scott_O%27Grady "Scott O'Grady") is rescued by [U.S. Marines](https://wikipedia.org/wiki/U.S._Marines "U.S. Marines") in [Bosnia](https://wikipedia.org/wiki/Bosnia_and_Herzegovina "Bosnia and Herzegovina").
+ [Ansett New Zealand Flight 703](https://wikipedia.org/wiki/Ansett_New_Zealand_Flight_703 "Ansett New Zealand Flight 703") crashes into the [Tararua Range](https://wikipedia.org/wiki/Tararua_Range "Tararua Range") during approach to [Palmerston North Airport](https://wikipedia.org/wiki/Palmerston_North_Airport "Palmerston North Airport") on the [North Island](https://wikipedia.org/wiki/North_Island "North Island") of [New Zealand](https://wikipedia.org/wiki/New_Zealand "New Zealand"), killing four.
 
-## Year - 1992
- [GP Express Airlines Flight 861](https://wikipedia.org/wiki/GP_Express_Airlines_Flight_861 "GP Express Airlines Flight 861") crashes on approach to [Anniston Regional Airport](https://wikipedia.org/wiki/Anniston_Regional_Airport "Anniston Regional Airport") in [Anniston, Alabama](https://wikipedia.org/wiki/Anniston,_Alabama "Anniston, Alabama"), killing three.
+## Year - 1979
+ The [Ghost Train fire](https://wikipedia.org/wiki/1979_Sydney_Ghost_Train_fire "1979 Sydney Ghost Train fire") at [Luna Park Sydney](https://wikipedia.org/wiki/Luna_Park_Sydney "Luna Park Sydney"), Australia, kills seven.
 
-## Year - 1992
- The first [World Oceans Day](https://wikipedia.org/wiki/World_Oceans_Day "World Oceans Day") is celebrated, coinciding with the [Earth Summit](https://wikipedia.org/wiki/Earth_Summit "Earth Summit") held in [Rio de Janeiro](https://wikipedia.org/wiki/Rio_de_Janeiro "Rio de Janeiro"), Brazil.
+## Year - 1978
+ [The Church of Jesus Christ of Latter-day Saints](https://wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints "The Church of Jesus Christ of Latter-day Saints") opens its [priesthood](https://wikipedia.org/wiki/Priesthood_(Latter_Day_Saints) "Priesthood (Latter Day Saints)") to "all worthy men", ending a 148-year-old policy of excluding black men.
 
-## Year - 1987
- [New Zealand](https://wikipedia.org/wiki/New_Zealand "New Zealand")'s [Labour government](https://wikipedia.org/wiki/Fourth_Labour_Government_of_New_Zealand "Fourth Labour Government of New Zealand") establishes a [national nuclear-free zone](https://wikipedia.org/wiki/New_Zealand_nuclear-free_zone "New Zealand nuclear-free zone") under the [New Zealand Nuclear Free Zone, Disarmament, and Arms Control Act 1987](https://wikipedia.org/wiki/New_Zealand_Nuclear_Free_Zone,_Disarmament,_and_Arms_Control_Act_1987 "New Zealand Nuclear Free Zone, Disarmament, and Arms Control Act 1987").
-
-## Year - 1984
- [Homosexuality](https://wikipedia.org/wiki/Homosexuality "Homosexuality") is decriminalized in the [Australian state](https://wikipedia.org/wiki/States_and_territories_of_Australia "States and territories of Australia") of [New South Wales](https://wikipedia.org/wiki/New_South_Wales "New South Wales").
-
-## Year - 1982
- [VASP Flight 168](https://wikipedia.org/wiki/VASP_Flight_168 "VASP Flight 168") crashes in [Pacatuba, Ceará](https://wikipedia.org/wiki/Pacatuba,_Cear%C3%A1 "Pacatuba, Ceará"), Brazil, killing 128 people.
-
-## Year - 1982
- [Bluff Cove Air Attacks](https://wikipedia.org/wiki/Bluff_Cove_Air_Attacks "Bluff Cove Air Attacks") during the [Falklands War](https://wikipedia.org/wiki/Falklands_War "Falklands War"): Fifty-six British servicemen are killed by an [Argentine](https://wikipedia.org/wiki/Argentines "Argentines") air attack on two landing ships, [RFA <i>Sir Galahad</i>](https://wikipedia.org/wiki/RFA_Sir_Galahad_(1966) "RFA Sir Galahad (1966)") and [RFA <i>Sir Tristram</i>](https://wikipedia.org/wiki/RFA_Sir_Tristram "RFA Sir Tristram").
+## Year - 1973
+ In horse racing, [Secretariat](https://wikipedia.org/wiki/Secretariat_(horse) "Secretariat (horse)") wins the [U.S. Triple Crown](https://wikipedia.org/wiki/Triple_Crown_of_Thoroughbred_Racing "Triple Crown of Thoroughbred Racing").
 
 ## Year - 1972
- [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): Nine-year-old [Phan Thị Kim Phúc](https://wikipedia.org/wiki/Phan_Thi_Kim_Phuc "Phan Thi Kim Phuc") is burned by [napalm](https://wikipedia.org/wiki/Napalm "Napalm"), an event captured by [Associated Press](https://wikipedia.org/wiki/Associated_Press "Associated Press") photographer [Nick Ut](https://wikipedia.org/wiki/Nick_Ut "Nick Ut") moments later while the young girl is seen running naked down a road, in what would become an iconic, [Pulitzer Prize](https://wikipedia.org/wiki/Pulitzer_Prize "Pulitzer Prize")-winning photo.
+ Severe rainfall causes a dam in the [Black Hills](https://wikipedia.org/wiki/Black_Hills "Black Hills") of [South Dakota](https://wikipedia.org/wiki/South_Dakota "South Dakota") to burst, creating [a flood](https://wikipedia.org/wiki/1972_Black_Hills_flood "1972 Black Hills flood") that kills 238 people and causes $160 million in damage.
 
 ## Year - 1968
- [James Earl Ray](https://wikipedia.org/wiki/James_Earl_Ray "James Earl Ray"), the man who [assassinated](https://wikipedia.org/wiki/Assassination_of_Martin_Luther_King_Jr. "Assassination of Martin Luther King Jr.") [Martin Luther King Jr.](https://wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr.") is arrested at [London Heathrow Airport](https://wikipedia.org/wiki/Heathrow_Airport "Heathrow Airport").
+ U.S. President [Lyndon B. Johnson](https://wikipedia.org/wiki/Lyndon_B._Johnson "Lyndon B. Johnson") declares a national day of mourning following the [assassination of Senator Robert F. Kennedy](https://wikipedia.org/wiki/Assassination_of_Senator_Robert_F._Kennedy "Assassination of Senator Robert F. Kennedy").
 
 ## Year - 1967
- [Six-Day War](https://wikipedia.org/wiki/Six-Day_War "Six-Day War"): The [USS <i>Liberty</i> incident](https://wikipedia.org/wiki/USS_Liberty_incident "USS Liberty incident"): A [United States Navy](https://wikipedia.org/wiki/United_States_Navy "United States Navy") [spy ship](https://wikipedia.org/wiki/Spy_ship "Spy ship") is attacked by the [Israeli Air Force](https://wikipedia.org/wiki/Israeli_Air_Force "Israeli Air Force") and Navy, resulting in 34 deaths and 171 wounded.
+ [Six-Day War](https://wikipedia.org/wiki/Six-Day_War "Six-Day War"): [Israel](https://wikipedia.org/wiki/Israel "Israel") captures the [Golan Heights](https://wikipedia.org/wiki/Golan_Heights "Golan Heights") from [Syria](https://wikipedia.org/wiki/Syria "Syria").
 
-## Year - 1966
- [Topeka, Kansas](https://wikipedia.org/wiki/Topeka,_Kansas "Topeka, Kansas"), United States is [devastated by a tornado](https://wikipedia.org/wiki/Tornado_outbreak_sequence_of_June_1966 "Tornado outbreak sequence of June 1966") that registers as an "F5" on the [Fujita scale](https://wikipedia.org/wiki/Fujita_scale "Fujita scale"), exceeding US$200 million in damages. Seventeen people are killed, over five hundred more injured, and thousands of homes damaged or destroyed.
+## Year - 1965
+ [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): The [Viet Cong](https://wikipedia.org/wiki/Viet_Cong "Viet Cong") commences combat with the [Army of the Republic of Vietnam](https://wikipedia.org/wiki/Army_of_the_Republic_of_Vietnam "Army of the Republic of Vietnam") in the [Battle of Đồng Xoài](https://wikipedia.org/wiki/Battle_of_Dong_Xoai "Battle of Dong Xoai"), one of the largest battles in the war.
 
-## Year - 1966
- An [F-104 Starfighter](https://wikipedia.org/wiki/Lockheed_F-104_Starfighter "Lockheed F-104 Starfighter") collides with [XB-70 Valkyrie](https://wikipedia.org/wiki/North_American_XB-70_Valkyrie "North American XB-70 Valkyrie") prototype no. 2, destroying both aircraft during a photo shoot near [Edwards Air Force Base](https://wikipedia.org/wiki/Edwards_Air_Force_Base "Edwards Air Force Base"). [Joseph A. Walker](https://wikipedia.org/wiki/Joseph_A._Walker "Joseph A. Walker"), a [NASA](https://wikipedia.org/wiki/NASA "NASA") test pilot, and Carl Cross, a [United States Air Force](https://wikipedia.org/wiki/United_States_Air_Force "United States Air Force") test pilot, are both killed.
-
-## Year - 1961
- [Marriage](https://wikipedia.org/wiki/Wedding_of_Prince_Edward_and_Katharine_Worsley "Wedding of Prince Edward and Katharine Worsley") of [Prince Edward, Duke of Kent](https://wikipedia.org/wiki/Prince_Edward,_Duke_of_Kent "Prince Edward, Duke of Kent") to [Katharine Worsley](https://wikipedia.org/wiki/Katharine,_Duchess_of_Kent "Katharine, Duchess of Kent") at [York Minster](https://wikipedia.org/wiki/York_Minster "York Minster").
+## Year - 1965
+ The civilian Prime Minister of [South Vietnam](https://wikipedia.org/wiki/South_Vietnam "South Vietnam"), [Phan Huy Quát](https://wikipedia.org/wiki/Phan_Huy_Qu%C3%A1t "Phan Huy Quát"), resigns after being unable to work with a junta led by [Nguyễn Cao Kỳ](https://wikipedia.org/wiki/Nguy%E1%BB%85n_Cao_K%E1%BB%B3 "Nguyễn Cao Kỳ").
 
 ## Year - 1959
- [USS <i>Barbero</i>](https://wikipedia.org/wiki/USS_Barbero "USS Barbero") and the [United States Postal Service](https://wikipedia.org/wiki/United_States_Postal_Service "United States Postal Service") attempt the delivery of mail via [Missile Mail](https://wikipedia.org/wiki/Missile_Mail "Missile Mail").
+ The [USS <i>George Washington</i>](https://wikipedia.org/wiki/USS_George_Washington_(SSBN-598) "USS George Washington (SSBN-598)") is launched. It is the first [nuclear-powered](https://wikipedia.org/wiki/Nuclear_power "Nuclear power") [ballistic missile submarine](https://wikipedia.org/wiki/Ballistic_missile_submarine "Ballistic missile submarine").
+
+## Year - 1957
+ First ascent of [Broad Peak](https://wikipedia.org/wiki/Broad_Peak "Broad Peak") by [Fritz Wintersteller](https://wikipedia.org/wiki/Fritz_Wintersteller "Fritz Wintersteller"), [Marcus Schmuck](https://wikipedia.org/wiki/Marcus_Schmuck "Marcus Schmuck"), [Kurt Diemberger](https://wikipedia.org/wiki/Kurt_Diemberger "Kurt Diemberger"), and [Hermann Buhl](https://wikipedia.org/wiki/Hermann_Buhl "Hermann Buhl").
+
+## Year - 1954
+ [Joseph N. Welch](https://wikipedia.org/wiki/Joseph_N._Welch "Joseph N. Welch"), special counsel for the United States Army, lashes out at Senator [Joseph McCarthy](https://wikipedia.org/wiki/Joseph_McCarthy "Joseph McCarthy") during the [Army-McCarthy hearings](https://wikipedia.org/wiki/Army%E2%80%93McCarthy_hearings "Army-McCarthy hearings"), giving McCarthy the famous rebuke, "You've done enough. Have you no sense of decency, sir, at long last? Have you left no sense of decency?"
 
 ## Year - 1953
- The [United States Supreme Court](https://wikipedia.org/wiki/Supreme_Court_of_the_United_States "Supreme Court of the United States") rules in <i>[District of Columbia v. John R. Thompson Co.](https://wikipedia.org/wiki/District_of_Columbia_v._John_R._Thompson_Co. "District of Columbia v. John R. Thompson Co.")</i> that restaurants in Washington, D.C., cannot refuse to serve black patrons.
+ The [Flint-Worcester tornado outbreak sequence](https://wikipedia.org/wiki/Flint%E2%80%93Worcester_tornado_outbreak_sequence "Flint-Worcester tornado outbreak sequence") kills 94 people in [Massachusetts](https://wikipedia.org/wiki/Massachusetts "Massachusetts").
 
-## Year - 1953
- [An F5 tornado](https://wikipedia.org/wiki/1953_Flint%E2%80%93Beecher_tornado "1953 Flint-Beecher tornado") hits [Beecher, Michigan](https://wikipedia.org/wiki/Beecher,_Michigan "Beecher, Michigan"), United States, killing 116, injuring 844, and destroying 340 homes.
+## Year - 1948
+ Foundation of the [International Council on Archives](https://wikipedia.org/wiki/International_Council_on_Archives "International Council on Archives") under the auspices of the UNESCO.
 
-## Year - 1943
- World War II: The two-day [Battle of Porta](https://wikipedia.org/wiki/Battle_of_Porta "Battle of Porta") between the [Royal Italian Army](https://wikipedia.org/wiki/Royal_Italian_Army "Royal Italian Army") and the [Greek People's Liberation Army](https://wikipedia.org/wiki/Greek_People%27s_Liberation_Army "Greek People's Liberation Army") begins.
+## Year - 1944
+ World War II: The [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") invades [East Karelia](https://wikipedia.org/wiki/East_Karelia "East Karelia") and the [previously Finnish part of Karelia](https://wikipedia.org/wiki/Karelia_(historical_province_of_Finland) "Karelia (historical province of Finland)"), occupied by Finland since [1941](https://wikipedia.org/wiki/1941 "1941").
 
-## Year - 1942
- World War II: The [Imperial Japanese Navy](https://wikipedia.org/wiki/Imperial_Japanese_Navy "Imperial Japanese Navy") submarines [I-21](https://wikipedia.org/wiki/Japanese_submarine_I-21 "Japanese submarine I-21") and I-24 shell the Australian cities of Sydney and [Newcastle](https://wikipedia.org/wiki/Newcastle,_New_South_Wales "Newcastle, New South Wales").
+## Year - 1944
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): Ninety-nine civilians are [hanged from lampposts and balconies](https://wikipedia.org/wiki/Tulle_massacre "Tulle massacre") by German troops in [Tulle](https://wikipedia.org/wiki/Tulle "Tulle"), France, in reprisal for [maquisards](https://wikipedia.org/wiki/Maquis_du_Limousin "Maquis du Limousin") attacks.
 
-## Year - 1941
- World War II: The [Allies](https://wikipedia.org/wiki/Allies_of_World_War_II "Allies of World War II") commence the [Syria-Lebanon Campaign](https://wikipedia.org/wiki/Syria%E2%80%93Lebanon_Campaign "Syria-Lebanon Campaign") against the possessions of [Vichy France](https://wikipedia.org/wiki/Vichy_France "Vichy France") in the [Levant](https://wikipedia.org/wiki/Levant "Levant").
-
-## Year - 1940
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The completion of [Operation Alphabet](https://wikipedia.org/wiki/Operation_Alphabet "Operation Alphabet"), the evacuation of Allied forces from [Narvik](https://wikipedia.org/wiki/Narvik "Narvik") at the end of the [Norwegian Campaign](https://wikipedia.org/wiki/Norwegian_Campaign "Norwegian Campaign").
-
-## Year - 1929
- [Margaret Bondfield](https://wikipedia.org/wiki/Margaret_Bondfield "Margaret Bondfield") is appointed [Minister of Labour](https://wikipedia.org/wiki/Secretary_of_State_for_Employment "Secretary of State for Employment"). She is the first woman appointed to the [Cabinet of the United Kingdom](https://wikipedia.org/wiki/Cabinet_of_the_United_Kingdom "Cabinet of the United Kingdom").
+## Year - 1930
+ A <i>[Chicago Tribune](https://wikipedia.org/wiki/Chicago_Tribune "Chicago Tribune")</i> reporter, [Jake Lingle](https://wikipedia.org/wiki/Jake_Lingle "Jake Lingle"), is killed during rush hour at the [Illinois](https://wikipedia.org/wiki/Illinois "Illinois") Central train station by [Leo Vincent Brothers](https://wikipedia.org/wiki/Leo_Vincent_Brothers "Leo Vincent Brothers"), allegedly over a $100,000 gambling debt owed to [Al Capone](https://wikipedia.org/wiki/Al_Capone "Al Capone").
 
 ## Year - 1928
- [Second Northern Expedition](https://wikipedia.org/wiki/Second_Northern_Expedition "Second Northern Expedition"): The [National Revolutionary Army](https://wikipedia.org/wiki/National_Revolutionary_Army "National Revolutionary Army") captures [Beijing](https://wikipedia.org/wiki/Beijing "Beijing"), whose name is changed to Beiping ("Northern Peace").
+ [Charles Kingsford Smith](https://wikipedia.org/wiki/Charles_Kingsford_Smith "Charles Kingsford Smith") completes the first trans-Pacific flight in a [Fokker Trimotor monoplane](https://wikipedia.org/wiki/Fokker_F.VII "Fokker F.VII"), the <i>[Southern Cross](https://wikipedia.org/wiki/Southern_Cross_(aircraft) "Southern Cross (aircraft)")</i>.
 
-## Year - 1924
- [British Mount Everest expedition](https://wikipedia.org/wiki/1924_British_Mount_Everest_expedition "1924 British Mount Everest expedition"): British mountaineers [Andrew Irvine](https://wikipedia.org/wiki/Andrew_Irvine_(mountaineer) "Andrew Irvine (mountaineer)") and [George Mallory](https://wikipedia.org/wiki/George_Mallory "George Mallory") go missing.
+## Year - 1923
+ [Bulgaria](https://wikipedia.org/wiki/Bulgaria "Bulgaria")'s military takes over the government in a [coup](https://wikipedia.org/wiki/Bulgarian_coup_d%27%C3%A9tat_of_1923 "Bulgarian coup d'état of 1923").
 
-## Year - 1906
- [Theodore Roosevelt](https://wikipedia.org/wiki/Theodore_Roosevelt "Theodore Roosevelt") signs the [Antiquities Act](https://wikipedia.org/wiki/Antiquities_Act "Antiquities Act") into law, authorizing the President to restrict the use of certain parcels of [public land](https://wikipedia.org/wiki/Public_land "Public land") with historical or conservation value.
+## Year - 1922
+ [Åland](https://wikipedia.org/wiki/%C3%85land "Åland")'s Regional Assembly convened for its first plenary session in [Mariehamn](https://wikipedia.org/wiki/Mariehamn "Mariehamn"), Åland; today, the day is celebrated as [Self-Government Day of Åland](https://wikipedia.org/wiki/%C3%85land%27s_Autonomy_Day "Åland's Autonomy Day").
 
-## Year - 1887
- [Herman Hollerith](https://wikipedia.org/wiki/Herman_Hollerith "Herman Hollerith") applies for US [patent](https://wikipedia.org/wiki/Patent "Patent") #395,781 for the 'Art of Compiling Statistics', which was his [punched card](https://wikipedia.org/wiki/Punched_card "Punched card") [calculator](https://wikipedia.org/wiki/Calculator "Calculator").
+## Year - 1915
+ [William Jennings Bryan](https://wikipedia.org/wiki/William_Jennings_Bryan "William Jennings Bryan") resigns as [Woodrow Wilson](https://wikipedia.org/wiki/Woodrow_Wilson "Woodrow Wilson")'s [Secretary of State](https://wikipedia.org/wiki/United_States_Secretary_of_State "United States Secretary of State") over a disagreement regarding the United States' handling of the sinking of the [RMS <i>Lusitania</i>](https://wikipedia.org/wiki/RMS_Lusitania "RMS Lusitania").
 
-## Year - 1867
- Coronation of [Franz Joseph](https://wikipedia.org/wiki/Franz_Joseph_I_of_Austria "Franz Joseph I of Austria") as [King of Hungary](https://wikipedia.org/wiki/King_of_Hungary "King of Hungary") following the Austro-Hungarian compromise (<i>[Ausgleich](https://wikipedia.org/wiki/Ausgleich "Ausgleich")</i>).
+## Year - 1900
+ Indian nationalist [Birsa Munda](https://wikipedia.org/wiki/Birsa_Munda "Birsa Munda") dies of [cholera](https://wikipedia.org/wiki/Cholera "Cholera") in a British prison.
+
+## Year - 1885
+ [Treaty of Tientsin](https://wikipedia.org/wiki/Treaty_of_Tientsin_(1885) "Treaty of Tientsin (1885)") is signed to end the [Sino-French War](https://wikipedia.org/wiki/Sino-French_War "Sino-French War"), with [China](https://wikipedia.org/wiki/Qing_dynasty "Qing dynasty") eventually giving up [Tonkin](https://wikipedia.org/wiki/Tonkin "Tonkin") and [Annam](https://wikipedia.org/wiki/Annam_(Chinese_province) "Annam (Chinese province)") - most of present-day [Vietnam](https://wikipedia.org/wiki/Vietnam "Vietnam") - to France.
+
+## Year - 1863
+ American Civil War: The [Battle of Brandy Station](https://wikipedia.org/wiki/Battle_of_Brandy_Station "Battle of Brandy Station") in [Virginia](https://wikipedia.org/wiki/Virginia_in_the_American_Civil_War "Virginia in the American Civil War"), the largest cavalry battle on American soil, ends [Confederate](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America") cavalry dominance in the [eastern theater](https://wikipedia.org/wiki/Eastern_theater_of_the_American_Civil_War "Eastern theater of the American Civil War").
 
 ## Year - 1862
- American Civil War: A [Confederate](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America") victory by forces under General [Stonewall Jackson](https://wikipedia.org/wiki/Stonewall_Jackson "Stonewall Jackson") at the [Battle of Cross Keys](https://wikipedia.org/wiki/Battle_of_Cross_Keys "Battle of Cross Keys"), along with the [Battle of Port Republic](https://wikipedia.org/wiki/Battle_of_Port_Republic "Battle of Port Republic") the next day, prevents [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") forces from reinforcing General [George B. McClellan](https://wikipedia.org/wiki/George_B._McClellan "George B. McClellan") in his [Peninsula campaign](https://wikipedia.org/wiki/Peninsula_campaign "Peninsula campaign").
-
-## Year - 1861
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Tennessee](https://wikipedia.org/wiki/Tennessee_in_the_American_Civil_War "Tennessee in the American Civil War") secedes from the [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)").
+ [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Stonewall Jackson](https://wikipedia.org/wiki/Stonewall_Jackson "Stonewall Jackson") concludes his successful [Shenandoah Valley Campaign](https://wikipedia.org/wiki/Jackson%27s_Valley_Campaign "Jackson's Valley Campaign") with a victory in the [Battle of Port Republic](https://wikipedia.org/wiki/Battle_of_Port_Republic "Battle of Port Republic").
 
 ## Year - 1856
- A group of 194 [Pitcairn Islanders](https://wikipedia.org/wiki/Pitcairn_Islands "Pitcairn Islands"), descendants of the mutineers of [HMS <i>Bounty</i>](https://wikipedia.org/wiki/HMS_Bounty "HMS Bounty"), arrives at [Norfolk Island](https://wikipedia.org/wiki/Norfolk_Island "Norfolk Island"), commencing the Third Settlement of the Island.
+ Five hundred [Mormons](https://wikipedia.org/wiki/Mormon_handcart_pioneers "Mormon handcart pioneers") leave [Iowa City, Iowa](https://wikipedia.org/wiki/Iowa_City,_Iowa "Iowa City, Iowa") for the [Mormon Trail](https://wikipedia.org/wiki/Mormon_Trail "Mormon Trail").
 
-## Year - 1794
- [Maximilien Robespierre](https://wikipedia.org/wiki/Maximilien_Robespierre "Maximilien Robespierre") inaugurates the [French Revolution](https://wikipedia.org/wiki/French_Revolution "French Revolution")'s new state religion, the [Cult of the Supreme Being](https://wikipedia.org/wiki/Cult_of_the_Supreme_Being "Cult of the Supreme Being"), with large organized festivals all across France.
+## Year - 1815
+ End of the [Congress of Vienna](https://wikipedia.org/wiki/Congress_of_Vienna "Congress of Vienna"): The new European political situation is set.
 
-## Year - 1789
- [James Madison](https://wikipedia.org/wiki/James_Madison "James Madison") introduces [twelve proposed amendments to the United States Constitution](https://wikipedia.org/wiki/United_States_Bill_of_Rights "United States Bill of Rights") in Congress.
-
-## Year - 1783
- [Laki](https://wikipedia.org/wiki/Laki "Laki"), a [volcano](https://wikipedia.org/wiki/Volcano "Volcano") in [Iceland](https://wikipedia.org/wiki/Iceland "Iceland"), begins an eight-month eruption which kills over 9,000 people and starts a seven-year [famine](https://wikipedia.org/wiki/Famine "Famine").
-
-## Year - 1776
- [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): [Continental Army](https://wikipedia.org/wiki/Continental_Army "Continental Army") attackers are driven back at the [Battle of Trois-Rivières](https://wikipedia.org/wiki/Battle_of_Trois-Rivi%C3%A8res "Battle of Trois-Rivières").
+## Year - 1798
+ [Irish Rebellion of 1798](https://wikipedia.org/wiki/Irish_Rebellion_of_1798 "Irish Rebellion of 1798"): [Battles of Arklow](https://wikipedia.org/wiki/Battle_of_Arklow "Battle of Arklow") and [Saintfield](https://wikipedia.org/wiki/Battle_of_Saintfield "Battle of Saintfield").
 
 ## Year - 1772
- [Alexander Fordyce](https://wikipedia.org/wiki/Alexander_Fordyce "Alexander Fordyce") flees to [France](https://wikipedia.org/wiki/Kingdom_of_France "Kingdom of France") to avoid debt repayment, triggering the [credit crisis of 1772](https://wikipedia.org/wiki/British_credit_crisis_of_1772%E2%80%931773 "British credit crisis of 1772-1773") in the [British Empire](https://wikipedia.org/wiki/British_Empire "British Empire") and the [Dutch Republic](https://wikipedia.org/wiki/Dutch_Republic "Dutch Republic").
+ The [British](https://wikipedia.org/wiki/Kingdom_of_Great_Britain "Kingdom of Great Britain") [schooner](https://wikipedia.org/wiki/Schooner "Schooner") <i>[Gaspee](https://wikipedia.org/wiki/Gaspee_Affair "Gaspee Affair")</i> is burned in Narragansett Bay, [Rhode Island](https://wikipedia.org/wiki/Rhode_Island "Rhode Island").
 
-## Year - 1663
- [Portuguese Restoration War](https://wikipedia.org/wiki/Portuguese_Restoration_War "Portuguese Restoration War"): Portuguese victory at the [Battle of Ameixial](https://wikipedia.org/wiki/Battle_of_Ameixial "Battle of Ameixial") ensures Portugal's independence from Spain.
+## Year - 1732
+ [James Oglethorpe](https://wikipedia.org/wiki/James_Oglethorpe "James Oglethorpe") is granted a [royal charter](https://wikipedia.org/wiki/Royal_charter "Royal charter") for the colony of the future U.S. state of [Georgia](https://wikipedia.org/wiki/Georgia_(U.S._state) "Georgia (U.S. state)").
 
-## Year - 1191
- King [Richard I](https://wikipedia.org/wiki/Richard_I "Richard I") of England arrives in [Acre](https://wikipedia.org/wiki/Acre,_Israel "Acre, Israel"), beginning the [Third Crusade](https://wikipedia.org/wiki/Third_Crusade "Third Crusade").
+## Year - 1534
+ [Jacques Cartier](https://wikipedia.org/wiki/Jacques_Cartier "Jacques Cartier") is the first European to describe and map the [Saint Lawrence River](https://wikipedia.org/wiki/Saint_Lawrence_River "Saint Lawrence River").
 
-## Year - 1042
- [Edward the Confessor](https://wikipedia.org/wiki/Edward_the_Confessor "Edward the Confessor") becomes [King of England](https://wikipedia.org/wiki/Monarchy_of_the_United_Kingdom "Monarchy of the United Kingdom") - the country's penultimate Anglo-Saxon king.
+## Year - 1523
+ The Parisian Faculty of Theology fines [Simon de Colines](https://wikipedia.org/wiki/Simon_de_Colines "Simon de Colines") for publishing the Biblical commentary <i>Commentarii initiatorii in quatuor Evangelia</i> by [Jacques Lefèvre d'Étaples](https://wikipedia.org/wiki/Jacques_Lef%C3%A8vre_d%27%C3%89taples "Jacques Lefèvre d'Étaples").
 
-## Year - 793
-Vikings raid the abbey at [Lindisfarne](https://wikipedia.org/wiki/Lindisfarne "Lindisfarne") in [Northumbria](https://wikipedia.org/wiki/Northumbria "Northumbria"), commonly accepted as the beginning of [Norse activity in the British Isles](https://wikipedia.org/wiki/Norse_activity_in_the_British_Isles "Norse activity in the British Isles").
+## Year - 1311
+ [Duccio](https://wikipedia.org/wiki/Duccio "Duccio")'s [Maestà](https://wikipedia.org/wiki/Maest%C3%A0_(Duccio) "Maestà (Duccio)"), a seminal artwork of the early [Italian Renaissance](https://wikipedia.org/wiki/Italian_Renaissance "Italian Renaissance"), is unveiled and installed in [Siena Cathedral](https://wikipedia.org/wiki/Siena_Cathedral "Siena Cathedral") in [Siena](https://wikipedia.org/wiki/Siena "Siena"), Italy.
 
-## Year - 452
-[Attila](https://wikipedia.org/wiki/Attila "Attila") leads a [Hun](https://wikipedia.org/wiki/Huns "Huns") army in the invasion of Italy, devastating the northern provinces as he heads for Rome.
+## Year - 747
+[Abbasid Revolution](https://wikipedia.org/wiki/Abbasid_Revolution#Persian_phase "Abbasid Revolution"): [Abu Muslim Khorasani](https://wikipedia.org/wiki/Abu_Muslim_Khorasani "Abu Muslim Khorasani") begins an open revolt against [Umayyad](https://wikipedia.org/wiki/Umayyad_Caliphate "Umayyad Caliphate") rule, which is carried out under the sign of the [Black Standard](https://wikipedia.org/wiki/Black_Standard "Black Standard").
 
-## Year - 218
-[Battle of Antioch](https://wikipedia.org/wiki/Battle_of_Antioch_(218) "Battle of Antioch (218)"): With the support of the Syrian [legions](https://wikipedia.org/wiki/Roman_legion "Roman legion"), [Elagabalus](https://wikipedia.org/wiki/Elagabalus "Elagabalus") defeats the forces of emperor [Macrinus](https://wikipedia.org/wiki/Macrinus "Macrinus").
+## Year - 721
+[Odo of Aquitaine](https://wikipedia.org/wiki/Odo_of_Aquitaine "Odo of Aquitaine") defeats the [Moors](https://wikipedia.org/wiki/Moors "Moors") in the [Battle of Toulouse](https://wikipedia.org/wiki/Battle_of_Toulouse_(721) "Battle of Toulouse (721)").
+
+## Year - 68
+Nero](https://wikipedia.org/wiki/Nero "Nero") dies by suicide after quoting [Vergil](https://wikipedia.org/wiki/Vergil "Vergil")'s <i>[Aeneid](https://wikipedia.org/wiki/Aeneid "Aeneid")</i>, thus ending the [Julio-Claudian dynasty](https://wikipedia.org/wiki/Julio-Claudian_dynasty "Julio-Claudian dynasty") and starting the civil war known as the [Year of the Four Emperors](https://wikipedia.org/wiki/Year_of_the_Four_Emperors "Year of the Four Emperors").
+
+## Year - 53
+he [Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") [Nero](https://wikipedia.org/wiki/Nero "Nero") marries [Claudia Octavia](https://wikipedia.org/wiki/Claudia_Octavia "Claudia Octavia").
+
+## Year - 411 BC
+ - 411 BC - The [Athenian coup](https://wikipedia.org/wiki/Athenian_coup_of_411_BC "Athenian coup of 411 BC") succeeds, forming a short-lived [oligarchy](https://wikipedia.org/wiki/Oligarchy "Oligarchy").
 
 <br />
 
-> _Last Updated: 6/8/2025, 2:41:38 PM (in GMT)_
+> _Last Updated: 6/9/2025, 3:38:49 AM (in GMT)_
