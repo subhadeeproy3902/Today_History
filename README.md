@@ -1,204 +1,210 @@
 
 # Today's History 📜
 
-9th July 2025
+10th July 2025
 
+
+## Year - 2019
+ The final [Volkswagen Beetle](https://wikipedia.org/wiki/Volkswagen_Beetle "Volkswagen Beetle") rolls off the line in [Puebla](https://wikipedia.org/wiki/Puebla_(city) "Puebla (city)"), Mexico; the last of 5,961 "Special Edition" cars will be exhibited in a museum.
+
+## Year - 2018
+ [Tham Luang cave rescue](https://wikipedia.org/wiki/Tham_Luang_cave_rescue "Tham Luang cave rescue"): A group of Thai school children and their football coach are all rescued from a cave after being stuck there for 18 days; one Thai Navy SEAL diver dies during the rescue mission.
+
+## Year - 2017
+ [Iraqi Civil War](https://wikipedia.org/wiki/War_in_Iraq_(2013%E2%80%932017) "War in Iraq (2013-2017)"): [Mosul](https://wikipedia.org/wiki/Mosul "Mosul") is declared [fully liberated](https://wikipedia.org/wiki/Battle_of_Mosul_(2016%E2%80%932017) "Battle of Mosul (2016-2017)") from the [Islamic State of Iraq and the Levant](https://wikipedia.org/wiki/Islamic_State_of_Iraq_and_the_Levant "Islamic State of Iraq and the Levant") by the government of [Iraq](https://wikipedia.org/wiki/Iraq "Iraq").
+
+## Year - 2016
+ [Portugal](https://wikipedia.org/wiki/Portugal_National_Football_Team "Portugal National Football Team") defeats [France](https://wikipedia.org/wiki/France_National_Football_Team "France National Football Team") in the [UEFA Euro 2016 Final](https://wikipedia.org/wiki/UEFA_Euro_2016_Final "UEFA Euro 2016 Final") to win their first [European title](https://wikipedia.org/wiki/UEFA_European_Championship "UEFA European Championship").
+
+## Year - 2012
+ The [Episcopal Church USA](https://wikipedia.org/wiki/Episcopal_Church_USA "Episcopal Church USA") allows [same-sex marriage](https://wikipedia.org/wiki/Same-sex_marriage "Same-sex marriage").
 
 ## Year - 2011
- [A rally takes place](https://wikipedia.org/wiki/Bersih_2.0_rally "Bersih 2.0 rally") in Kuala Lumpur, Malaysia to call for fairer elections in the country.
+ Amid widespread backlash to revelations of [phone hacking](https://wikipedia.org/wiki/News_International_phone_hacking_scandal "News International phone hacking scandal"), the British weekly [tabloid](https://wikipedia.org/wiki/Tabloid_(newspaper_format) "Tabloid (newspaper format)") newspaper <i>[News of the World](https://wikipedia.org/wiki/News_of_the_World "News of the World")</i> publishes its final issue and shuts down after nearly 168 years in print.
 
 ## Year - 2011
- [South Sudan](https://wikipedia.org/wiki/South_Sudan "South Sudan") gains independence and secedes from [Sudan](https://wikipedia.org/wiki/Sudan "Sudan").
+ Russian cruise ship <i>[Bulgaria](https://wikipedia.org/wiki/Bulgaria_(ship) "Bulgaria (ship)")</i> sinks in the [Volga](https://wikipedia.org/wiki/Volga "Volga") River near [Syukeyevo](https://wikipedia.org/wiki/Syukeyevo "Syukeyevo"), [Tatarstan](https://wikipedia.org/wiki/Tatarstan "Tatarstan"), causing 122 deaths.
+
+## Year - 2008
+ Former Macedonian Interior Minister [Ljube Boškoski](https://wikipedia.org/wiki/Ljube_Bo%C5%A1koski "Ljube Boškoski") is acquitted of all war-crimes charges by a [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations") tribunal.
+
+## Year - 2007
+ [Erden Eruç](https://wikipedia.org/wiki/Erden_Eru%C3%A7 "Erden Eruç") begins the first solo human-powered [circumnavigation](https://wikipedia.org/wiki/Circumnavigation "Circumnavigation") of the world.
 
 ## Year - 2006
- One hundred and twenty-five people are killed when [S7 Airlines Flight 778](https://wikipedia.org/wiki/S7_Airlines_Flight_778 "S7 Airlines Flight 778"), an [Airbus A310](https://wikipedia.org/wiki/Airbus_A310 "Airbus A310") passenger jet, veers off the runway while landing in wet conditions at [Irkutsk Airport](https://wikipedia.org/wiki/International_Airport_Irkutsk "International Airport Irkutsk") in [Siberia](https://wikipedia.org/wiki/Siberia "Siberia").
-
-## Year - 2004
- The [Senate Report on Iraqi WMD Intelligence](https://wikipedia.org/wiki/Senate_Report_on_Iraqi_WMD_Intelligence "Senate Report on Iraqi WMD Intelligence") is released by the [United States Senate Select Committee on Intelligence](https://wikipedia.org/wiki/United_States_Senate_Select_Committee_on_Intelligence "United States Senate Select Committee on Intelligence"), casting doubt on the [rationale for the Iraq War](https://wikipedia.org/wiki/Rationale_for_the_Iraq_War "Rationale for the Iraq War").
+ A [Pakistan International Airlines Fokker F27 Friendship crashes](https://wikipedia.org/wiki/Pakistan_International_Airlines_Flight_688 "Pakistan International Airlines Flight 688") near [Multan International Airport](https://wikipedia.org/wiki/Multan_International_Airport "Multan International Airport"), killing all 45 people on board.
 
 ## Year - 2002
- The [African Union](https://wikipedia.org/wiki/African_Union "African Union") is established in Addis Ababa, [Ethiopia](https://wikipedia.org/wiki/Ethiopia "Ethiopia"), replacing the [Organisation of African Unity](https://wikipedia.org/wiki/Organisation_of_African_Unity "Organisation of African Unity") (OAU). The organization's first chairman is [Thabo Mbeki](https://wikipedia.org/wiki/Thabo_Mbeki "Thabo Mbeki"), President of [South Africa](https://wikipedia.org/wiki/South_Africa "South Africa").
+ <i>[The Massacre of the Innocents](https://wikipedia.org/wiki/Massacre_of_the_Innocents_(Rubens) "Massacre of the Innocents (Rubens)")</i>, a painting by [Peter Paul Rubens](https://wikipedia.org/wiki/Peter_Paul_Rubens "Peter Paul Rubens"), is sold at a [Sotheby's](https://wikipedia.org/wiki/Sotheby%27s "Sotheby's") auction for £49.5 million (US$76.2 million) to [Lord Thomson](https://wikipedia.org/wiki/Kenneth_Thomson,_2nd_Baron_Thomson_of_Fleet "Kenneth Thomson, 2nd Baron Thomson of Fleet").
+
+## Year - 2000
+ [Bashar al-Assad](https://wikipedia.org/wiki/Bashar_al-Assad "Bashar al-Assad") succeeds his father [Hafez al-Assad](https://wikipedia.org/wiki/Hafez_al-Assad "Hafez al-Assad") as [President of Syria](https://wikipedia.org/wiki/President_of_Syria "President of Syria").
+
+## Year - 2000
+ [EADS](https://wikipedia.org/wiki/EADS "EADS"), the world's second-largest aerospace group is formed by the merger of [Aérospatiale-Matra](https://wikipedia.org/wiki/A%C3%A9rospatiale-Matra "Aérospatiale-Matra"), [DASA](https://wikipedia.org/wiki/DaimlerChrysler_Aerospace "DaimlerChrysler Aerospace"), and [CASA](https://wikipedia.org/wiki/Construcciones_Aeron%C3%A1uticas_SA "Construcciones Aeronáuticas SA").
 
 ## Year - 1999
- [Days of student protests](https://wikipedia.org/wiki/Iran_student_protests,_July_1999 "Iran student protests, July 1999") begin after [Iranian](https://wikipedia.org/wiki/Iran "Iran") police and hardliners attack a student dormitory at the [University of Tehran](https://wikipedia.org/wiki/University_of_Tehran "University of Tehran").
+ In women's [association football](https://wikipedia.org/wiki/Association_football "Association football"), the [United States](https://wikipedia.org/wiki/United_States_women%27s_national_soccer_team "United States women's national soccer team") defeats [China](https://wikipedia.org/wiki/China_women%27s_national_football_team "China women's national football team") in a [penalty shoot-out](https://wikipedia.org/wiki/Penalty_shoot-out_(association_football) "Penalty shoot-out (association football)") at the [Rose Bowl](https://wikipedia.org/wiki/Rose_Bowl_(stadium) "Rose Bowl (stadium)") near [Los Angeles](https://wikipedia.org/wiki/Los_Angeles "Los Angeles") to win the [final match](https://wikipedia.org/wiki/1999_FIFA_Women%27s_World_Cup_Final "1999 FIFA Women's World Cup Final") of the [1999 FIFA Women's World Cup](https://wikipedia.org/wiki/1999_FIFA_Women%27s_World_Cup "1999 FIFA Women's World Cup"). Watched by 90,185 spectators, the final sets a new world record for attendance at a women's sporting event.
+
+## Year - 1998
+ [Catholic Church sexual abuse cases](https://wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases "Catholic Church sexual abuse cases"): The [Diocese of Dallas](https://wikipedia.org/wiki/Roman_Catholic_Diocese_of_Dallas "Roman Catholic Diocese of Dallas") agrees to pay $23.4 million to nine former altar boys who claim they were [sexually abused](https://wikipedia.org/wiki/Child_sexual_abuse "Child sexual abuse") by [Rudolph Kos](https://wikipedia.org/wiki/Rudolph_Kos "Rudolph Kos"), a former priest.
 
 ## Year - 1997
- A [Fokker 100](https://wikipedia.org/wiki/Fokker_100 "Fokker 100") from the Brazilian airline [TAM](https://wikipedia.org/wiki/LATAM_Brasil "LATAM Brasil") launches engineer [Fernando Caldeira de Moura Campos](https://wikipedia.org/wiki/LATAM_Brasil#Incidents_and_accidents "LATAM Brasil") into 2,400 meters of free fall after an explosion that depressurized the aircraft.
+ [Miguel Ángel Blanco](https://wikipedia.org/wiki/Miguel_%C3%81ngel_Blanco "Miguel Ángel Blanco"), a member of [Partido Popular](https://wikipedia.org/wiki/People%27s_Party_(Spain) "People's Party (Spain)") (Spain), is kidnapped (and later murdered) in the Basque city of [Ermua](https://wikipedia.org/wiki/Ermua "Ermua") by [ETA](https://wikipedia.org/wiki/ETA_(separatist_group) "ETA (separatist group)") members, sparking widespread protests.
+
+## Year - 1997
+ In London, scientists report the findings of the [DNA](https://wikipedia.org/wiki/DNA "DNA") analysis of a [Neanderthal](https://wikipedia.org/wiki/Neanderthal "Neanderthal") skeleton which supports the "[out of Africa theory](https://wikipedia.org/wiki/Out_of_Africa_theory "Out of Africa theory")" of [human evolution](https://wikipedia.org/wiki/Human_evolution "Human evolution"), placing an "[African Eve](https://wikipedia.org/wiki/African_Eve "African Eve")" at 100,000 to 200,000 years ago.
 
 ## Year - 1995
- The [Navaly church bombing](https://wikipedia.org/wiki/Navaly_church_bombing "Navaly church bombing") is carried out by the [Sri Lanka Air Force](https://wikipedia.org/wiki/Sri_Lanka_Air_Force "Sri Lanka Air Force") killing 125 [Tamil](https://wikipedia.org/wiki/Tamil_people "Tamil people") civilian refugees.
+ The [NIOSH air filtration ratings](https://wikipedia.org/wiki/NIOSH_air_filtration_rating "NIOSH air filtration rating") update with the enactment of 42 CFR 84, previously published in the [Federal Register](https://wikipedia.org/wiki/Federal_Register "Federal Register"). The new regulation includes rules governing the new [N95 respirator](https://wikipedia.org/wiki/N95_respirator "N95 respirator") standard.
 
-## Year - 1993
- The [Parliament of Canada](https://wikipedia.org/wiki/Parliament_of_Canada "Parliament of Canada") passes the Nunavut Act leading to the 1999 creation of [Nunavut](https://wikipedia.org/wiki/Nunavut "Nunavut"), dividing the [Northwest Territories](https://wikipedia.org/wiki/Northwest_Territories "Northwest Territories") into arctic ([Inuit](https://wikipedia.org/wiki/Inuit "Inuit")) and sub-arctic ([Dene](https://wikipedia.org/wiki/Dene "Dene")) lands based on a [plebiscite](https://wikipedia.org/wiki/1982_Northwest_Territories_division_plebiscite "1982 Northwest Territories division plebiscite").
+## Year - 1995
+ [Burmese](https://wikipedia.org/wiki/Myanmar "Myanmar") politician [Aung San Suu Kyi](https://wikipedia.org/wiki/Aung_San_Suu_Kyi "Aung San Suu Kyi") is released from house arrest.
 
-## Year - 1986
- The [New Zealand Parliament](https://wikipedia.org/wiki/New_Zealand_Parliament "New Zealand Parliament") passes the [Homosexual Law Reform Act](https://wikipedia.org/wiki/Homosexual_Law_Reform_Act_1986 "Homosexual Law Reform Act 1986") [legalising homosexuality in New Zealand](https://wikipedia.org/wiki/LGBT_rights_in_New_Zealand "LGBT rights in New Zealand").
+## Year - 1992
+ In [Miami](https://wikipedia.org/wiki/Miami "Miami"), former [Panamanian](https://wikipedia.org/wiki/Panamanian "Panamanian") leader [Manuel Noriega](https://wikipedia.org/wiki/Manuel_Noriega "Manuel Noriega") is sentenced to 40 years in prison for [drug](https://wikipedia.org/wiki/Recreational_drug_use "Recreational drug use") and [racketeering](https://wikipedia.org/wiki/Racketeering "Racketeering") violations.
 
-## Year - 1982
- [Pan Am Flight 759](https://wikipedia.org/wiki/Pan_Am_Flight_759 "Pan Am Flight 759") crashes in [Kenner, Louisiana](https://wikipedia.org/wiki/Kenner,_Louisiana "Kenner, Louisiana"), killing all 145 people on board and eight others on the ground.
+## Year - 1991
+ A [Beechcraft Model 99 crashes](https://wikipedia.org/wiki/L%27Express_Airlines_Flight_508 "L'Express Airlines Flight 508") near Birmingham Municipal Airport (now [Birmingham-Shuttlesworth International Airport](https://wikipedia.org/wiki/Birmingham%E2%80%93Shuttlesworth_International_Airport "Birmingham-Shuttlesworth International Airport")) in [Birmingham, Alabama](https://wikipedia.org/wiki/Birmingham,_Alabama "Birmingham, Alabama"), killing 13 of the 15 people on board.
 
-## Year - 1979
- A car bomb destroys a [Renault](https://wikipedia.org/wiki/Renault "Renault") motor car owned by "[Nazi hunters](https://wikipedia.org/wiki/Nazi_hunter "Nazi hunter")" [Serge](https://wikipedia.org/wiki/Serge_Klarsfeld "Serge Klarsfeld") and [Beate Klarsfeld](https://wikipedia.org/wiki/Beate_Klarsfeld "Beate Klarsfeld") outside their home in France in an unsuccessful assassination attempt.
+## Year - 1991
+ [Boris Yeltsin](https://wikipedia.org/wiki/Boris_Yeltsin "Boris Yeltsin") takes office as the first elected [President of Russia](https://wikipedia.org/wiki/President_of_Russia "President of Russia").
 
-## Year - 1977
- The [Pinochet dictatorship](https://wikipedia.org/wiki/Military_dictatorship_of_Chile_(1973%E2%80%931990) "Military dictatorship of Chile (1973-1990)") in Chile organises the youth event of [Acto de Chacarillas](https://wikipedia.org/wiki/Acto_de_Chacarillas "Acto de Chacarillas"), a ritualised act reminiscent of [Francoist Spain](https://wikipedia.org/wiki/Francoist_Spain "Francoist Spain").
+## Year - 1991
+ The [South African cricket team](https://wikipedia.org/wiki/South_African_cricket_team "South African cricket team") is readmitted into the [International Cricket Council](https://wikipedia.org/wiki/International_Cricket_Council "International Cricket Council") following the end of [Apartheid](https://wikipedia.org/wiki/Apartheid "Apartheid").
+
+## Year - 1985
+ An [Aeroflot Tupolev Tu-154 stalls and crashes](https://wikipedia.org/wiki/Aeroflot_Flight_5143 "Aeroflot Flight 5143") near [Uchkuduk](https://wikipedia.org/wiki/Uchkuduk "Uchkuduk"), [Uzbekistan](https://wikipedia.org/wiki/Uzbekistan "Uzbekistan") (then part of the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union")), killing all 200 people on board in the USSR's worst-ever airline disaster.
+
+## Year - 1985
+ The [Greenpeace](https://wikipedia.org/wiki/Greenpeace "Greenpeace") vessel <i>[Rainbow Warrior](https://wikipedia.org/wiki/Rainbow_Warrior_(1978) "Rainbow Warrior (1978)")</i> is [bombed and sunk](https://wikipedia.org/wiki/Sinking_of_the_Rainbow_Warrior "Sinking of the Rainbow Warrior") in [Auckland](https://wikipedia.org/wiki/Auckland "Auckland") harbour by French [DGSE](https://wikipedia.org/wiki/DGSE "DGSE") agents, killing [Fernando Pereira](https://wikipedia.org/wiki/Fernando_Pereira "Fernando Pereira").
+
+## Year - 1978
+ [1978](https://wikipedia.org/wiki/1978 "1978") - President [Moktar Ould Daddah](https://wikipedia.org/wiki/Moktar_Ould_Daddah "Moktar Ould Daddah") of [Mauritania](https://wikipedia.org/wiki/Mauritania "Mauritania") is ousted in a bloodless [coup d'état](https://wikipedia.org/wiki/1978_Mauritanian_coup_d%27%C3%A9tat "1978 Mauritanian coup d'état").
+
+## Year - 1976
+ Four mercenaries (one American and three British) are executed in [Angola](https://wikipedia.org/wiki/Angola "Angola") following the [Luanda Trial](https://wikipedia.org/wiki/Luanda_Trial "Luanda Trial").
+
+## Year - 1974
+ An [EgyptAir Tupolev Tu-154 stalls and crashes](https://wikipedia.org/wiki/1974_EgyptAir_Tupolev_Tu-154_crash "1974 EgyptAir Tupolev Tu-154 crash") at [Cairo International Airport](https://wikipedia.org/wiki/Cairo_International_Airport "Cairo International Airport"), killing all six people on board.
+
+## Year - 1973
+ [The Bahamas](https://wikipedia.org/wiki/The_Bahamas "The Bahamas") gains full independence within the [Commonwealth of Nations](https://wikipedia.org/wiki/Commonwealth_of_Nations "Commonwealth of Nations").
+
+## Year - 1966
+ The [Chicago Freedom Movement](https://wikipedia.org/wiki/Chicago_Freedom_Movement "Chicago Freedom Movement"), co-founded by [Martin Luther King Jr.](https://wikipedia.org/wiki/Martin_Luther_King_Jr. "Martin Luther King Jr."), holds a rally at [Soldier Field](https://wikipedia.org/wiki/Soldier_Field "Soldier Field") in Chicago; as many as 60,000 people attend.
 
 ## Year - 1962
- [Starfish Prime](https://wikipedia.org/wiki/Starfish_Prime "Starfish Prime") tests the effects of a [nuclear test at orbital altitudes](https://wikipedia.org/wiki/High-altitude_nuclear_explosion "High-altitude nuclear explosion").
+ [Telstar](https://wikipedia.org/wiki/Telstar_1 "Telstar 1"), the world's first [communications satellite](https://wikipedia.org/wiki/Communications_satellite "Communications satellite"), is launched into orbit.
 
-## Year - 1961
- [Greece](https://wikipedia.org/wiki/Greece "Greece") becomes the first member state to join the [European Economic Community](https://wikipedia.org/wiki/European_Economic_Community "European Economic Community") by signing the Athens Agreement, which was suspended in 1967 during the [Greek junta](https://wikipedia.org/wiki/Greek_junta "Greek junta").
+## Year - 1951
+ [Korean War](https://wikipedia.org/wiki/Korean_War "Korean War"): Armistice negotiations begin at [Kaesong](https://wikipedia.org/wiki/Kaesong "Kaesong").
 
-## Year - 1958
- A 7.8 M<sub>w</sub>  strike-slip [earthquake in Alaska](https://wikipedia.org/wiki/1958_Lituya_Bay,_Alaska_earthquake_and_megatsunami "1958 Lituya Bay, Alaska earthquake and megatsunami") causes a [landslide](https://wikipedia.org/wiki/Landslide "Landslide") that produces a [megatsunami](https://wikipedia.org/wiki/Megatsunami "Megatsunami"). The runup from the waves reached 525 m (1,722 ft) on the rim of [Lituya Bay](https://wikipedia.org/wiki/Lituya_Bay "Lituya Bay"); five people were killed.
-
-## Year - 1956
- The 7.7 M<sub>w</sub>  [Amorgos earthquake](https://wikipedia.org/wiki/1956_Amorgos_earthquake "1956 Amorgos earthquake") shakes the [Cyclades](https://wikipedia.org/wiki/Cyclades "Cyclades") island group in the [Aegean Sea](https://wikipedia.org/wiki/Aegean_Sea "Aegean Sea") with a maximum [Mercalli intensity](https://wikipedia.org/wiki/Mercalli_intensity_scale "Mercalli intensity scale") of IX (<i>Violent</i>). The shaking and the destructive tsunami that followed left fifty-three people dead. A damaging M7.2 aftershock occurred minutes after the mainshock.
-
-## Year - 1955
- The [Russell-Einstein Manifesto](https://wikipedia.org/wiki/Russell%E2%80%93Einstein_Manifesto "Russell-Einstein Manifesto") calls for a reduction of the risk of [nuclear warfare](https://wikipedia.org/wiki/Nuclear_warfare "Nuclear warfare").
-
-## Year - 1944
- World War II: [Continuation War](https://wikipedia.org/wiki/Continuation_War "Continuation War"): Finland wins the [Battle of Tali-Ihantala](https://wikipedia.org/wiki/Battle_of_Tali%E2%80%93Ihantala "Battle of Tali-Ihantala"), the largest battle ever fought in [northern Europe](https://wikipedia.org/wiki/Northern_Europe "Northern Europe"). The [Red Army](https://wikipedia.org/wiki/Red_Army "Red Army") withdraws its troops from Ihantala and digs into a defensive position, thus ending the [Vyborg-Petrozavodsk Offensive](https://wikipedia.org/wiki/Vyborg%E2%80%93Petrozavodsk_Offensive "Vyborg-Petrozavodsk Offensive").
-
-## Year - 1944
- World War II: American forces [take Saipan](https://wikipedia.org/wiki/Battle_of_Saipan "Battle of Saipan"), bringing the [Japanese archipelago](https://wikipedia.org/wiki/Japanese_archipelago "Japanese archipelago") within range of [B-29](https://wikipedia.org/wiki/Boeing_B-29_Superfortress "Boeing B-29 Superfortress") raids, and causing the downfall of the [Tojo government](https://wikipedia.org/wiki/Hideki_Tojo "Hideki Tojo").
+## Year - 1947
+ [Muhammad Ali Jinnah](https://wikipedia.org/wiki/Muhammad_Ali_Jinnah "Muhammad Ali Jinnah") is recommended as the first [Governor-General of Pakistan](https://wikipedia.org/wiki/Governor-General_of_Pakistan "Governor-General of Pakistan") by the British Prime Minister, [Clement Attlee](https://wikipedia.org/wiki/Clement_Attlee "Clement Attlee").
 
 ## Year - 1943
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Allied invasion of Sicily](https://wikipedia.org/wiki/Allied_invasion_of_Sicily "Allied invasion of Sicily") begins, leading to the [downfall of Mussolini](https://wikipedia.org/wiki/25_Luglio "25 Luglio") and forcing [Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") to break off the [Battle of Kursk](https://wikipedia.org/wiki/Battle_of_Kursk "Battle of Kursk").
+ World War II: [Operation Husky](https://wikipedia.org/wiki/Operation_Husky "Operation Husky") begins in Sicily.
 
-## Year - 1937
- The silent film archives of [Fox Film Corporation](https://wikipedia.org/wiki/Fox_Film_Corporation "Fox Film Corporation") are destroyed by the [1937 Fox vault fire](https://wikipedia.org/wiki/1937_Fox_vault_fire "1937 Fox vault fire").
+## Year - 1942
+ World War II: An American pilot spots a downed, intact [Mitsubishi A6M Zero](https://wikipedia.org/wiki/Mitsubishi_A6M_Zero "Mitsubishi A6M Zero") on [Akutan Island](https://wikipedia.org/wiki/Akutan_Island "Akutan Island") (the "[Akutan Zero](https://wikipedia.org/wiki/Akutan_Zero "Akutan Zero")"), which the US Navy then uses to learn the aircraft's flight characteristics.
 
-## Year - 1932
- The state of [São Paulo](https://wikipedia.org/wiki/S%C3%A3o_Paulo_(state) "São Paulo (state)") revolts against the [Brazilian](https://wikipedia.org/wiki/Brazil "Brazil") Federal Government, starting the [Constitutionalist Revolution](https://wikipedia.org/wiki/Constitutionalist_Revolution "Constitutionalist Revolution").
+## Year - 1941
+ [Jedwabne pogrom](https://wikipedia.org/wiki/Jedwabne_pogrom "Jedwabne pogrom"): Massacre of Polish Jews living in and near the village of [Jedwabne](https://wikipedia.org/wiki/Jedwabne "Jedwabne").
 
-## Year - 1926
- [Chiang Kai-shek](https://wikipedia.org/wiki/Chiang_Kai-shek "Chiang Kai-shek") accepts the post of commander-in-chief of the [National Revolutionary Army](https://wikipedia.org/wiki/National_Revolutionary_Army "National Revolutionary Army"), marking the beginning of the [Northern Expedition](https://wikipedia.org/wiki/Northern_Expedition "Northern Expedition") to unite [China](https://wikipedia.org/wiki/Republic_of_China_(1912%E2%80%931949) "Republic of China (1912-1949)") under the rule of the [Nationalist government](https://wikipedia.org/wiki/Nationalist_government "Nationalist government").
+## Year - 1940
+ World War II: Six days before [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") issues his [Directive 16](https://wikipedia.org/wiki/List_of_Adolf_Hitler%27s_directives "List of Adolf Hitler's directives") to the combined <i>[Wehrmacht](https://wikipedia.org/wiki/Wehrmacht "Wehrmacht")</i> armed forces for [Operation Sea Lion](https://wikipedia.org/wiki/Operation_Sea_Lion "Operation Sea Lion"), the <i>[Kanalkampf](https://wikipedia.org/wiki/Kanalkampf "Kanalkampf")</i> shipping attacks begin against British maritime convoys in the leadup to initiating the [Battle of Britain](https://wikipedia.org/wiki/Battle_of_Britain "Battle of Britain").
 
-## Year - 1922
- [Johnny Weissmuller](https://wikipedia.org/wiki/Johnny_Weissmuller "Johnny Weissmuller") swims the [100 meters freestyle](https://wikipedia.org/wiki/Freestyle_swimming "Freestyle swimming") in 58.6 seconds breaking the world [swimming](https://wikipedia.org/wiki/Swimming_(sport) "Swimming (sport)") record and the 'minute barrier'.
+## Year - 1940
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Vichy government](https://wikipedia.org/wiki/Vichy_government "Vichy government") is established in France.
 
-## Year - 1918
- In [Nashville, Tennessee](https://wikipedia.org/wiki/Nashville,_Tennessee "Nashville, Tennessee"), an inbound local train [collides with an outbound express](https://wikipedia.org/wiki/Great_Train_Wreck_of_1918 "Great Train Wreck of 1918"), killing 101 and injuring 171 people, making it the deadliest rail accident in United States history.
+## Year - 1938
+ [Howard Hughes](https://wikipedia.org/wiki/Howard_Hughes "Howard Hughes") begins a 91-hour [airplane](https://wikipedia.org/wiki/Airplane "Airplane") flight around the world that will set a new record.
 
-## Year - 1900
- The Governor of [Shanxi](https://wikipedia.org/wiki/Shanxi "Shanxi") province in [North China](https://wikipedia.org/wiki/North_China "North China") orders the [execution](https://wikipedia.org/wiki/Taiyuan_massacre "Taiyuan massacre") of 45 foreign Christian missionaries and local church members, including children.
+## Year - 1927
+ [Kevin O'Higgins](https://wikipedia.org/wiki/Kevin_O%27Higgins "Kevin O'Higgins") [TD](https://wikipedia.org/wiki/Teachta_D%C3%A1la "Teachta Dála"), Vice-President of the Executive Council of the [Irish Free State](https://wikipedia.org/wiki/Irish_Free_State "Irish Free State"), is assassinated by the [IRA](https://wikipedia.org/wiki/Irish_Republican_Army "Irish Republican Army").
 
-## Year - 1900
- The [Federation of Australia](https://wikipedia.org/wiki/Federation_of_Australia "Federation of Australia") is given [royal assent](https://wikipedia.org/wiki/Royal_assent "Royal assent").
+## Year - 1925
+ [Scopes trial](https://wikipedia.org/wiki/Scopes_trial "Scopes trial"): In [Dayton, Tennessee](https://wikipedia.org/wiki/Dayton,_Tennessee "Dayton, Tennessee"), the so-called "Monkey Trial" begins of [John T. Scopes](https://wikipedia.org/wiki/John_T._Scopes "John T. Scopes"), a young high school science teacher accused of teaching [evolution](https://wikipedia.org/wiki/Evolution "Evolution") in violation of the [Butler Act](https://wikipedia.org/wiki/Butler_Act "Butler Act").
 
-## Year - 1896
- [William Jennings Bryan](https://wikipedia.org/wiki/William_Jennings_Bryan "William Jennings Bryan") delivers his [Cross of Gold speech](https://wikipedia.org/wiki/Cross_of_Gold_speech "Cross of Gold speech") advocating [bimetallism](https://wikipedia.org/wiki/Bimetallism "Bimetallism") at the [1896 Democratic National Convention](https://wikipedia.org/wiki/1896_Democratic_National_Convention "1896 Democratic National Convention") in [Chicago](https://wikipedia.org/wiki/Chicago "Chicago").
+## Year - 1924
+ [Paavo Nurmi](https://wikipedia.org/wiki/Paavo_Nurmi "Paavo Nurmi") wins the 1,500 m and 5,000 m events at the [Paris Olympics](https://wikipedia.org/wiki/1924_Summer_Olympics "1924 Summer Olympics"), with just an hour between the two races.
 
-## Year - 1893
- [Daniel Hale Williams](https://wikipedia.org/wiki/Daniel_Hale_Williams "Daniel Hale Williams"), American heart surgeon, performs the first successful open-heart surgery in United States without anesthesia.
+## Year - 1921
+ [Belfast's Bloody Sunday](https://wikipedia.org/wiki/Bloody_Sunday_(1921) "Bloody Sunday (1921)") occurs with 20 killings, at least 100 wounded and 200 homes destroyed during rioting and gun battles in [Belfast](https://wikipedia.org/wiki/Belfast "Belfast"), [Northern Ireland](https://wikipedia.org/wiki/Northern_Ireland "Northern Ireland").
+
+## Year - 1920
+ [Arthur Meighen](https://wikipedia.org/wiki/Arthur_Meighen "Arthur Meighen") becomes [Prime Minister of Canada](https://wikipedia.org/wiki/Prime_Minister_of_Canada "Prime Minister of Canada").
+
+## Year - 1890
+ [Wyoming](https://wikipedia.org/wiki/Wyoming "Wyoming") is admitted as the 44th [U.S. state](https://wikipedia.org/wiki/U.S._state "U.S. state").
+
+## Year - 1883
+ [War of the Pacific](https://wikipedia.org/wiki/War_of_the_Pacific "War of the Pacific"): Chileans led by [Alejandro Gorostiaga](https://wikipedia.org/wiki/Alejandro_Gorostiaga "Alejandro Gorostiaga") defeat [Andrés Avelino Cáceres](https://wikipedia.org/wiki/Andr%C3%A9s_Avelino_C%C3%A1ceres "Andrés Avelino Cáceres")'s Peruvian army at the [Battle of Huamachuco](https://wikipedia.org/wiki/Battle_of_Huamachuco "Battle of Huamachuco"), hastening the end of the war.
+
+## Year - 1882
+ [War of the Pacific](https://wikipedia.org/wiki/War_of_the_Pacific "War of the Pacific"): Chile suffers its last military defeat in the [Battle of La Concepción](https://wikipedia.org/wiki/Battle_of_La_Concepci%C3%B3n "Battle of La Concepción") when a garrison of 77 men is annihilated by a 1,300-strong Peruvian force, many of them armed with spears.
 
 ## Year - 1877
- The [inaugural](https://wikipedia.org/wiki/1877_Wimbledon_Championship "1877 Wimbledon Championship") [Wimbledon Championships](https://wikipedia.org/wiki/The_Championships,_Wimbledon "The Championships, Wimbledon") begins.
-
-## Year - 1875
- The [Herzegovina Uprising](https://wikipedia.org/wiki/Herzegovina_Uprising_(1875%E2%80%9377) "Herzegovina Uprising (1875-77)") against [Ottoman](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire") rule begins, which would last until 1878 and have far-reaching implications throughout the Balkans.
-
-## Year - 1868
- The [14th Amendment to the United States Constitution](https://wikipedia.org/wiki/Fourteenth_Amendment_to_the_United_States_Constitution "Fourteenth Amendment to the United States Constitution") is ratified, guaranteeing [African Americans](https://wikipedia.org/wiki/African_Americans "African Americans") full citizenship and all persons in the United States [due process](https://wikipedia.org/wiki/Due_process "Due process") of law.
-
-## Year - 1863
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): The [Siege of Port Hudson](https://wikipedia.org/wiki/Siege_of_Port_Hudson "Siege of Port Hudson") ends in a [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") victory and, along with the [fall of Vicksburg](https://wikipedia.org/wiki/Siege_of_Vicksburg "Siege of Vicksburg") five days earlier, gives the Union complete control of the [Mississippi River](https://wikipedia.org/wiki/Mississippi_River "Mississippi River").
+ The then-[villa](https://wikipedia.org/wiki/Villa#Post-Roman_era "Villa") of [Mayagüez, Puerto Rico](https://wikipedia.org/wiki/Mayag%C3%BCez,_Puerto_Rico "Mayagüez, Puerto Rico"), formally receives its city charter from the Royal Crown of Spain.
 
 ## Year - 1850
- Persian prophet [Báb](https://wikipedia.org/wiki/B%C3%A1b "Báb") is executed in [Tabriz](https://wikipedia.org/wiki/Tabriz "Tabriz"), [Persia](https://wikipedia.org/wiki/Iran "Iran").
+ U.S. President [Millard Fillmore](https://wikipedia.org/wiki/Millard_Fillmore "Millard Fillmore") is sworn in, a day after becoming president upon [Zachary Taylor](https://wikipedia.org/wiki/Zachary_Taylor "Zachary Taylor")'s death.
 
-## Year - 1850
- U.S. President [Zachary Taylor](https://wikipedia.org/wiki/Zachary_Taylor "Zachary Taylor") dies after eating raw fruit and iced milk; he is succeeded in office by Vice President [Millard Fillmore](https://wikipedia.org/wiki/Millard_Fillmore "Millard Fillmore").
+## Year - 1832
+ U.S. President [Andrew Jackson](https://wikipedia.org/wiki/Andrew_Jackson "Andrew Jackson") vetoes a bill that would re-charter the [Second Bank of the United States](https://wikipedia.org/wiki/Second_Bank_of_the_United_States "Second Bank of the United States").
 
-## Year - 1821
- Four hundred and seventy prominent [Cypriots](https://wikipedia.org/wiki/Cyprus "Cyprus") including Archbishop [Kyprianos](https://wikipedia.org/wiki/Kyprianos "Kyprianos") are executed in response to Cypriot aid to the [Greek War of Independence](https://wikipedia.org/wiki/Greek_War_of_Independence "Greek War of Independence").
-
-## Year - 1816
- [Argentina](https://wikipedia.org/wiki/Argentina "Argentina") [declares independence](https://wikipedia.org/wiki/Argentine_Declaration_of_Independence "Argentine Declaration of Independence") from Spain.
-
-## Year - 1815
- [Charles Maurice de Talleyrand-Périgord](https://wikipedia.org/wiki/Charles_Maurice_de_Talleyrand-P%C3%A9rigord "Charles Maurice de Talleyrand-Périgord") becomes the first [Prime Minister of France](https://wikipedia.org/wiki/Prime_Minister_of_France "Prime Minister of France").
-
-## Year - 1811
- Explorer [David Thompson](https://wikipedia.org/wiki/David_Thompson_(explorer) "David Thompson (explorer)") posts a sign near what is now [Sacajawea State Park](https://wikipedia.org/wiki/Sacajawea_State_Park "Sacajawea State Park") in [Washington state](https://wikipedia.org/wiki/Washington_(state) "Washington (state)"), claiming the [Columbia District](https://wikipedia.org/wiki/Columbia_District "Columbia District") for the United Kingdom.
-
-## Year - 1810
- [Napoleon](https://wikipedia.org/wiki/Napoleon "Napoleon") annexes the [Kingdom of Holland](https://wikipedia.org/wiki/Kingdom_of_Holland "Kingdom of Holland") as part of the First French Empire.
-
-## Year - 1807
- The second [Treaty of Tilsit](https://wikipedia.org/wiki/Treaties_of_Tilsit "Treaties of Tilsit") is signed between [France](https://wikipedia.org/wiki/First_French_Empire "First French Empire") and [Prussia](https://wikipedia.org/wiki/Prussia "Prussia"), ending the [War of the Fourth Coalition](https://wikipedia.org/wiki/War_of_the_Fourth_Coalition "War of the Fourth Coalition").
-
-## Year - 1795
- Financier [James Swan](https://wikipedia.org/wiki/James_Swan_(financier) "James Swan (financier)") pays off the $2,024,899 US national debt that had been accrued during the [American Revolution](https://wikipedia.org/wiki/American_Revolution "American Revolution").
-
-## Year - 1793
- The [Act Against Slavery](https://wikipedia.org/wiki/Act_Against_Slavery "Act Against Slavery") in [Upper Canada](https://wikipedia.org/wiki/Upper_Canada "Upper Canada") bans the importation of slaves and will free those who are born into slavery after the passage of the Act at 25 years of age.
-
-## Year - 1790
- The [Swedish Navy](https://wikipedia.org/wiki/Swedish_Navy "Swedish Navy") [captures one third](https://wikipedia.org/wiki/Battle_of_Svensksund "Battle of Svensksund") of the [Russian Baltic fleet](https://wikipedia.org/wiki/Russian_Navy "Russian Navy").
+## Year - 1806
+ The [Vellore Mutiny](https://wikipedia.org/wiki/Vellore_Mutiny "Vellore Mutiny") is the first instance of a mutiny by Indian [sepoys](https://wikipedia.org/wiki/Sepoy "Sepoy") against the [British East India Company](https://wikipedia.org/wiki/British_East_India_Company "British East India Company").
 
 ## Year - 1789
- In [Versailles](https://wikipedia.org/wiki/Versailles,_Yvelines "Versailles, Yvelines"), the [National Assembly](https://wikipedia.org/wiki/National_Assembly_(French_Revolution) "National Assembly (French Revolution)") reconstitutes itself as the [National Constituent Assembly](https://wikipedia.org/wiki/National_Constituent_Assembly_(France) "National Constituent Assembly (France)") and begins preparations for a [French constitution](https://wikipedia.org/wiki/Constitution_of_France "Constitution of France").
+ [Alexander Mackenzie](https://wikipedia.org/wiki/Alexander_Mackenzie_(explorer) "Alexander Mackenzie (explorer)") reaches the [Mackenzie River](https://wikipedia.org/wiki/Mackenzie_River "Mackenzie River") delta.
 
-## Year - 1776
- [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington") orders the [Declaration of Independence](https://wikipedia.org/wiki/United_States_Declaration_of_Independence "United States Declaration of Independence") to be read out to members of the [Continental Army](https://wikipedia.org/wiki/Continental_Army "Continental Army") in [Manhattan](https://wikipedia.org/wiki/Manhattan "Manhattan"), while thousands of British troops on [Staten Island](https://wikipedia.org/wiki/Staten_Island "Staten Island") prepare for the [Battle of Long Island](https://wikipedia.org/wiki/Battle_of_Long_Island "Battle of Long Island").
+## Year - 1778
+ [American Revolution](https://wikipedia.org/wiki/American_Revolution "American Revolution"): [Louis XVI of France](https://wikipedia.org/wiki/Louis_XVI_of_France "Louis XVI of France") declares war on the [Kingdom of Great Britain](https://wikipedia.org/wiki/Kingdom_of_Great_Britain "Kingdom of Great Britain").
 
-## Year - 1763
- The [Mozart family grand tour](https://wikipedia.org/wiki/Mozart_family_grand_tour "Mozart family grand tour") of Europe began, lifting the profile of son [Wolfgang Amadeus](https://wikipedia.org/wiki/Wolfgang_Amadeus_Mozart "Wolfgang Amadeus Mozart").
+## Year - 1668
+ [Anglo-Spanish War (1654-1671)](https://wikipedia.org/wiki/Anglo-Spanish_War_(1654%E2%80%931660) "Anglo-Spanish War (1654-1660)"): Notable [Buccaneer](https://wikipedia.org/wiki/Buccaneer "Buccaneer") [Henry Morgan](https://wikipedia.org/wiki/Henry_Morgan "Henry Morgan") with an English [Privateer](https://wikipedia.org/wiki/Privateer "Privateer") force lands at [Porto Bello](https://wikipedia.org/wiki/Portobelo,_Col%C3%B3n "Portobelo, Colón") in an attempt to [capture the fortified and lucrative Spanish city](https://wikipedia.org/wiki/Henry_Morgan%27s_raid_on_Porto_Bello "Henry Morgan's raid on Porto Bello").
 
-## Year - 1762
- [Catherine the Great](https://wikipedia.org/wiki/Catherine_the_Great "Catherine the Great") becomes Empress of Russia following the coup against her husband, [Peter III](https://wikipedia.org/wiki/Peter_III_of_Russia "Peter III of Russia").
+## Year - 1645
+ [English Civil War](https://wikipedia.org/wiki/English_Civil_War "English Civil War"): The [Battle of Langport](https://wikipedia.org/wiki/Battle_of_Langport "Battle of Langport") takes place.
 
-## Year - 1755
- The [Braddock Expedition](https://wikipedia.org/wiki/Braddock_Expedition "Braddock Expedition") is [soundly defeated](https://wikipedia.org/wiki/Battle_of_the_Monongahela "Battle of the Monongahela") by a smaller French and [Native American](https://wikipedia.org/wiki/Native_Americans_in_the_United_States "Native Americans in the United States") force in its attempt to capture [Fort Duquesne](https://wikipedia.org/wiki/Fort_Duquesne "Fort Duquesne") in what is now [downtown Pittsburgh](https://wikipedia.org/wiki/Downtown_Pittsburgh "Downtown Pittsburgh").
+## Year - 1584
+ [William I of Orange](https://wikipedia.org/wiki/William_I_of_Orange "William I of Orange") is assassinated in his home in [Delft](https://wikipedia.org/wiki/Delft "Delft"), [Holland](https://wikipedia.org/wiki/Holland "Holland"), by [Balthasar Gérard](https://wikipedia.org/wiki/Balthasar_G%C3%A9rard "Balthasar Gérard").
 
-## Year - 1745
- French victory in the [Battle of Melle](https://wikipedia.org/wiki/Battle_of_Melle "Battle of Melle") allows them to capture [Ghent](https://wikipedia.org/wiki/Ghent "Ghent") in the days after.
+## Year - 1553
+ [Lady Jane Grey](https://wikipedia.org/wiki/Lady_Jane_Grey "Lady Jane Grey") takes the throne of England.
 
-## Year - 1701
- A [Bourbon](https://wikipedia.org/wiki/House_of_Bourbon "House of Bourbon") force under [Nicolas Catinat](https://wikipedia.org/wiki/Nicolas_Catinat "Nicolas Catinat") withdraws from a smaller [Habsburg](https://wikipedia.org/wiki/Habsburg_monarchy "Habsburg monarchy") force under [Prince Eugene of Savoy](https://wikipedia.org/wiki/Prince_Eugene_of_Savoy "Prince Eugene of Savoy") in the [Battle of Carpi](https://wikipedia.org/wiki/Battle_of_Carpi "Battle of Carpi").
+## Year - 1519
+ [Zhu Chenhao](https://wikipedia.org/wiki/Zhu_Chenhao "Zhu Chenhao") declares the [Ming dynasty](https://wikipedia.org/wiki/Ming_dynasty "Ming dynasty")'s [Zhengde Emperor](https://wikipedia.org/wiki/Zhengde_Emperor "Zhengde Emperor") a usurper, beginning the [Prince of Ning rebellion](https://wikipedia.org/wiki/Prince_of_Ning_rebellion "Prince of Ning rebellion"), and leads his army north in an attempt to capture [Nanjing](https://wikipedia.org/wiki/Nanjing "Nanjing").
 
-## Year - 1609
- [Bohemia](https://wikipedia.org/wiki/Bohemia "Bohemia") is granted [freedom of religion](https://wikipedia.org/wiki/Freedom_of_religion "Freedom of religion") through the [Letter of Majesty](https://wikipedia.org/wiki/Letter_of_Majesty "Letter of Majesty") by the Holy Roman Emperor, [Rudolf II](https://wikipedia.org/wiki/Rudolf_II "Rudolf II").
+## Year - 1512
+ The [Spanish conquest of Iberian Navarre](https://wikipedia.org/wiki/Spanish_conquest_of_Iberian_Navarre "Spanish conquest of Iberian Navarre") commences with the capture of [Goizueta](https://wikipedia.org/wiki/Goizueta,_Navarre "Goizueta, Navarre").
 
-## Year - 1572
- [Nineteen Catholics](https://wikipedia.org/wiki/Martyrs_of_Gorkum "Martyrs of Gorkum") suffer martyrdom for their beliefs, in the Dutch town of [Gorkum](https://wikipedia.org/wiki/Gorinchem "Gorinchem").
+## Year - 1499
+ The Portuguese explorer [Nicolau Coelho](https://wikipedia.org/wiki/Nicolau_Coelho "Nicolau Coelho") returns to [Lisbon](https://wikipedia.org/wiki/Lisbon "Lisbon") after discovering the sea route to India as a companion of [Vasco da Gama](https://wikipedia.org/wiki/Vasco_da_Gama "Vasco da Gama").
 
-## Year - 1540
- King [Henry VIII](https://wikipedia.org/wiki/Henry_VIII "Henry VIII") of England annuls his marriage to his fourth wife, [Anne of Cleves](https://wikipedia.org/wiki/Anne_of_Cleves "Anne of Cleves").
+## Year - 1460
+ [Richard Neville, 16th Earl of Warwick](https://wikipedia.org/wiki/Richard_Neville,_16th_Earl_of_Warwick "Richard Neville, 16th Earl of Warwick"), defeats the king's [Lancastrian](https://wikipedia.org/wiki/House_of_Lancaster "House of Lancaster") forces and takes [King Henry VI](https://wikipedia.org/wiki/Henry_VI_of_England "Henry VI of England") prisoner in the [Battle of Northampton](https://wikipedia.org/wiki/Battle_of_Northampton_(1460) "Battle of Northampton (1460)").
 
-## Year - 1401
- [Timur](https://wikipedia.org/wiki/Timur "Timur") attacks the [Jalairid Sultanate](https://wikipedia.org/wiki/Jalairid_Sultanate "Jalairid Sultanate") and destroys Baghdad.
+## Year - 1290
+ [Ladislaus IV](https://wikipedia.org/wiki/Ladislaus_IV_of_Hungary "Ladislaus IV of Hungary"), [King of Hungary](https://wikipedia.org/wiki/King_of_Hungary "King of Hungary"), is assassinated at the castle of [Körösszeg](https://wikipedia.org/wiki/Toboliu "Toboliu") (modern-day Cheresig in [Romania](https://wikipedia.org/wiki/Romania "Romania")).
 
-## Year - 1386
- The [Old Swiss Confederacy](https://wikipedia.org/wiki/Old_Swiss_Confederacy "Old Swiss Confederacy") makes great strides in [establishing control over its territory](https://wikipedia.org/wiki/Growth_of_the_Old_Swiss_Confederacy "Growth of the Old Swiss Confederacy") by soundly defeating the [Duchy of Austria](https://wikipedia.org/wiki/Duchy_of_Austria "Duchy of Austria") in the [Battle of Sempach](https://wikipedia.org/wiki/Battle_of_Sempach "Battle of Sempach").
+## Year - 1212
+ The most severe of several [early fires of London](https://wikipedia.org/wiki/Early_fires_of_London "Early fires of London") burns most of the city to the ground.
 
-## Year - 1357
- [Emperor Charles IV](https://wikipedia.org/wiki/Charles_IV,_Holy_Roman_Emperor "Charles IV, Holy Roman Emperor") assists in laying the [foundation stone](https://wikipedia.org/wiki/Cornerstone "Cornerstone") of [Charles Bridge](https://wikipedia.org/wiki/Charles_Bridge "Charles Bridge") in [Prague](https://wikipedia.org/wiki/Prague "Prague").
+## Year - 988
+The Norse King [Glúniairn](https://wikipedia.org/wiki/Gl%C3%BAniairn "Glúniairn") recognises [Máel Sechnaill mac Domnaill](https://wikipedia.org/wiki/M%C3%A1el_Sechnaill_mac_Domnaill "Máel Sechnaill mac Domnaill"), High King of Ireland, and agrees to pay taxes and accept [Brehon Law](https://wikipedia.org/wiki/Brehon_Law "Brehon Law"); the event is considered to be the founding of the city of [Dublin](https://wikipedia.org/wiki/Dublin "Dublin").
 
-## Year - 969
-The [Fatimid](https://wikipedia.org/wiki/Fatimid "Fatimid") general [Jawhar](https://wikipedia.org/wiki/Jawhar_(general) "Jawhar (general)") leads the [Friday prayer](https://wikipedia.org/wiki/Friday_prayer "Friday prayer") in [Fustat](https://wikipedia.org/wiki/Fustat "Fustat") in the name of Caliph [al-Mu'izz li-Din Allah](https://wikipedia.org/wiki/Al-Mu%27izz_li-Din_Allah "Al-Mu'izz li-Din Allah"), thereby symbolically completing the [Fatimid conquest of Egypt](https://wikipedia.org/wiki/Fatimid_conquest_of_Egypt "Fatimid conquest of Egypt").
+## Year - 645
+[Isshi Incident](https://wikipedia.org/wiki/Isshi_Incident "Isshi Incident"): Prince [Naka-no-Ōe](https://wikipedia.org/wiki/Emperor_Tenji "Emperor Tenji") and [Fujiwara no Kamatari](https://wikipedia.org/wiki/Fujiwara_no_Kamatari "Fujiwara no Kamatari") assassinate [Soga no Iruka](https://wikipedia.org/wiki/Soga_no_Iruka "Soga no Iruka") during a <i>[coup d'état](https://wikipedia.org/wiki/Coup_d%27%C3%A9tat "Coup d'état")</i> at the imperial palace.
 
-## Year - 869
-The 8.4-9.0 M<sub>w</sub> [Sanriku earthquake](https://wikipedia.org/wiki/869_Sanriku_earthquake "869 Sanriku earthquake") strikes the area around [Sendai](https://wikipedia.org/wiki/Sendai "Sendai") in northern [Honshu](https://wikipedia.org/wiki/Honshu "Honshu"), Japan. Inundation from the tsunami extended several kilometers inland.
+## Year - 420
+Having usurped the throne of [Emperor Gong of Jin](https://wikipedia.org/wiki/Emperor_Gong_of_Jin "Emperor Gong of Jin"), [Liu Yu](https://wikipedia.org/wiki/Emperor_Wu_of_Song "Emperor Wu of Song") proclaims himself [Emperor](https://wikipedia.org/wiki/List_of_emperors_of_the_Southern_dynasties "List of emperors of the Southern dynasties") of the [Liu Song dynasty](https://wikipedia.org/wiki/Liu_Song_dynasty "Liu Song dynasty").
 
-## Year - 660
-Korean forces under general [Kim Yu-sin](https://wikipedia.org/wiki/Kim_Yu-sin "Kim Yu-sin") of Silla defeat the army of [Baekje](https://wikipedia.org/wiki/Baekje "Baekje") in the [Battle of Hwangsanbeol](https://wikipedia.org/wiki/Battle_of_Hwangsanbeol "Battle of Hwangsanbeol").
-
-## Year - 551
-A [major earthquake](https://wikipedia.org/wiki/551_Beirut_earthquake "551 Beirut earthquake") strikes Beirut, triggering a devastating tsunami that affects the coastal towns of [Byzantine Phoenicia](https://wikipedia.org/wiki/Phoenicia_under_Roman_rule "Phoenicia under Roman rule"), causing thousands of deaths.
-
-## Year - 491
-[Odoacer](https://wikipedia.org/wiki/Odoacer "Odoacer") makes a night assault with his [Heruli](https://wikipedia.org/wiki/Heruli "Heruli") guardsmen, engaging [Theoderic the Great](https://wikipedia.org/wiki/Theoderic_the_Great "Theoderic the Great") in Ad Pinetam. Both sides suffer heavy losses, but in the end Theodoric forces Odoacer back into [Ravenna](https://wikipedia.org/wiki/Ravenna "Ravenna").
-
-## Year - 381
-The end of the [First Council](https://wikipedia.org/wiki/First_Council_of_Constantinople "First Council of Constantinople") of Christian bishops convened in Constantinople by the Roman emperor [Theodosius I](https://wikipedia.org/wiki/Theodosius_I "Theodosius I").
-
-## Year - 118
-[Hadrian](https://wikipedia.org/wiki/Hadrian "Hadrian"), who became emperor a year previously on Trajan's death, makes his entry into Rome.
+## Year - 138
+Emperor [Hadrian](https://wikipedia.org/wiki/Hadrian "Hadrian") of Rome dies of [heart failure](https://wikipedia.org/wiki/Heart_failure "Heart failure") at his residence on the bay of Naples, [Baiae](https://wikipedia.org/wiki/Baiae "Baiae"); he is buried at [Rome](https://wikipedia.org/wiki/Ancient_Rome "Ancient Rome") in the [Tomb of Hadrian](https://wikipedia.org/wiki/Castel_Sant%27Angelo "Castel Sant'Angelo") beside his late wife, [Vibia Sabina](https://wikipedia.org/wiki/Vibia_Sabina "Vibia Sabina").
 
 <br />
 
-> _Last Updated: 7/9/2025, 2:47:06 PM (in GMT)_
+> _Last Updated: 7/10/2025, 3:39:33 AM (in GMT)_
