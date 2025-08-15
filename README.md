@@ -293,4 +293,4 @@ Arab-Byzantine wars: [Maslama ibn Abd al-Malik](https://wikipedia.org/wiki/Masla
 
 <br />
 
-> _Last Updated: 8/15/2025, 3:39:46 AM (in GMT)_
+> _Last Updated: 8/15/2025, 2:45:31 PM (in GMT)_
