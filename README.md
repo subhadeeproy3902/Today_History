@@ -193,4 +193,4 @@ Start of the four-day [Battle of al-Mada'in](https://wikipedia.org/wiki/Battle_o
 
 <br />
 
-> _Last Updated: 8/16/2025, 3:33:12 AM (in GMT)_
+> _Last Updated: 8/16/2025, 2:41:44 PM (in GMT)_
