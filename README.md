@@ -1,147 +1,138 @@
 
 # Today's History 📜
 
-22nd September 2025
+23rd September 2025
 
 
 ## Year - 2024
- [Anura Kumara Dissanayake](https://wikipedia.org/wiki/Anura_Kumara_Dissanayake "Anura Kumara Dissanayake") is [elected](https://wikipedia.org/wiki/2024_Sri_Lankan_presidential_election "2024 Sri Lankan presidential election") as the 9th [President Of Sri Lanka](https://wikipedia.org/wiki/President_of_Sri_Lanka "President of Sri Lanka").
+ [Israel](https://wikipedia.org/wiki/Israel "Israel") launches [airstrikes](https://wikipedia.org/wiki/September_2024_Israeli_attacks_against_Lebanon#23_September_in_Lebanon "September 2024 Israeli attacks against Lebanon") against [Hezbollah](https://wikipedia.org/wiki/Hezbollah "Hezbollah") targets in [Lebanon](https://wikipedia.org/wiki/Lebanon "Lebanon"), killing more than 490 people.
+
+## Year - 2022
+ Voting begins in the five-day [sham](https://wikipedia.org/wiki/Election#Shams "Election") [annexation referendums in Russian-occupied Ukraine](https://wikipedia.org/wiki/2022_annexation_referendums_in_Russian-occupied_Ukraine "2022 annexation referendums in Russian-occupied Ukraine"), leading to [Russian annexation of Donetsk, Kherson, Luhansk and Zaporizhzhia oblasts](https://wikipedia.org/wiki/Russian_annexation_of_Donetsk,_Kherson,_Luhansk_and_Zaporizhzhia_oblasts "Russian annexation of Donetsk, Kherson, Luhansk and Zaporizhzhia oblasts").
+
+## Year - 2020
+ A [grand jury](https://wikipedia.org/wiki/Grand_jury "Grand jury") in [Kentucky](https://wikipedia.org/wiki/Kentucky "Kentucky") declines to indict three police officers for the shooting death of [Breonna Taylor](https://wikipedia.org/wiki/Breonna_Taylor "Breonna Taylor") in a drug raid gone wrong, leading to [nationwide protests in the U.S.](https://wikipedia.org/wiki/Breonna_Taylor_protests "Breonna Taylor protests")
+
+## Year - 2019
+ Twenty people die on the first of two days of [rioting](https://wikipedia.org/wiki/2019_Papua_protests "2019 Papua protests") in [Papua](https://wikipedia.org/wiki/Papua_(province) "Papua (province)") and [West Papua](https://wikipedia.org/wiki/West_Papua_(province) "West Papua (province)") over an alleged racist incident.
 
 ## Year - 2013
- At least 75 people are killed in a [suicide bombing](https://wikipedia.org/wiki/Peshawar_church_bombing "Peshawar church bombing") at a Christian church in [Peshawar](https://wikipedia.org/wiki/Peshawar "Peshawar"), Pakistan.
+ Twenty-five people are killed after [Typhoon Usagi](https://wikipedia.org/wiki/Typhoon_Usagi_(2013) "Typhoon Usagi (2013)") passes Hong Kong and China.
 
-## Year - 2006
- Twenty-three people were killed in a [maglev](https://wikipedia.org/wiki/Maglev "Maglev") [train collision](https://wikipedia.org/wiki/Lathen_train_collision "Lathen train collision") in [Lathen](https://wikipedia.org/wiki/Lathen "Lathen"), [Germany](https://wikipedia.org/wiki/Germany "Germany").
+## Year - 2010
+ [Teresa Lewis](https://wikipedia.org/wiki/Teresa_Lewis "Teresa Lewis") becomes the first woman to be executed by the U.S. state of [Virginia](https://wikipedia.org/wiki/Virginia "Virginia") since 1912, and the first woman in the state to be executed by [lethal injection](https://wikipedia.org/wiki/Lethal_injection "Lethal injection").
 
-## Year - 1995
- The [Nagerkovil school bombing](https://wikipedia.org/wiki/Nagerkovil_school_bombing "Nagerkovil school bombing") is carried out by the Sri Lanka Air Force in which at least 34 die, most of them ethnic Tamil schoolchildren.
+## Year - 2008
+ Matti Saari [kills ten people](https://wikipedia.org/wiki/Kauhajoki_school_shooting "Kauhajoki school shooting") at a school in Finland before committing suicide.
 
-## Year - 1995
- An E-3B AWACS [crashes](https://wikipedia.org/wiki/1995_Alaska_Boeing_E-3_Sentry_accident "1995 Alaska Boeing E-3 Sentry accident") outside Elmendorf Air Force Base, Alaska after multiple bird strikes to two of the four engines soon after takeoff; all 24 on board are killed.
+## Year - 2004
+ Over 3,000 people die in [Haiti](https://wikipedia.org/wiki/Haiti "Haiti") after [Hurricane Jeanne](https://wikipedia.org/wiki/Hurricane_Jeanne "Hurricane Jeanne") produces massive flooding and mudslides.
 
-## Year - 1993
- A [Transair Georgian Airlines Tu-154 is shot down](https://wikipedia.org/wiki/1993_Sukhumi_airliner_attacks "1993 Sukhumi airliner attacks") by a missile in Sukhumi, Georgia.
+## Year - 1999
+ [Qantas Flight 1](https://wikipedia.org/wiki/Qantas_Flight_1 "Qantas Flight 1") overrun a runway in [Bangkok](https://wikipedia.org/wiki/Bangkok "Bangkok") during a storm, causing minor injuries to some passengers.
 
-## Year - 1993
- A barge strikes a railroad bridge near Mobile, Alabama, causing [the deadliest train wreck](https://wikipedia.org/wiki/Big_Bayou_Canot_rail_accident "Big Bayou Canot rail accident") in Amtrak history. Forty-seven passengers are killed.
+## Year - 1983
+ [Gulf Air Flight 771](https://wikipedia.org/wiki/Gulf_Air_Flight_771 "Gulf Air Flight 771") is destroyed by a bomb, killing all 112 people on board.
 
-## Year - 1991
- The [Dead Sea Scrolls](https://wikipedia.org/wiki/Dead_Sea_Scrolls "Dead Sea Scrolls") are made available to the public for the first time.
+## Year - 1973
+ [Argentine general election](https://wikipedia.org/wiki/Argentine_general_election,_September_1973 "Argentine general election, September 1973"): [Juan Perón](https://wikipedia.org/wiki/Juan_Per%C3%B3n "Juan Perón") returns to power in Argentina.
 
-## Year - 1981
- During a [military exercise](https://wikipedia.org/wiki/Military_exercise "Military exercise"), a [Turkish Air Force](https://wikipedia.org/wiki/Turkish_Air_Force "Turkish Air Force") [Northrop F-5](https://wikipedia.org/wiki/Northrop_F-5 "Northrop F-5") [crashes](https://wikipedia.org/wiki/Pancark%C3%B6y_air_disaster "Pancarköy air disaster") in [Babaeski](https://wikipedia.org/wiki/Babaeski "Babaeski") as a result of [pilot error](https://wikipedia.org/wiki/Pilot_error "Pilot error"), killing one crew member and also 65 soldiers on the ground.
+## Year - 1967
+ Seven people die, 46 people are injured, and more than 150 boats capsize when a [squall hit Lake Michigan](https://wikipedia.org/wiki/1967_Coho_Salmon_Fishing_Disaster "1967 Coho Salmon Fishing Disaster") during [Michigan](https://wikipedia.org/wiki/Michigan "Michigan")'s first [coho salmon](https://wikipedia.org/wiki/Coho_salmon "Coho salmon") sport fishing season.
 
-## Year - 1980
- Iraq [invades](https://wikipedia.org/wiki/Iraqi_invasion_of_Iran "Iraqi invasion of Iran") Iran, sparking the nearly eight year [Iran-Iraq War](https://wikipedia.org/wiki/Iran%E2%80%93Iraq_War "Iran-Iraq War").
+## Year - 1964
+ [Typhoon Wilda](https://wikipedia.org/wiki/Typhoon_Wilda_(1964) "Typhoon Wilda (1964)"), one of the strongest typhoons to ever strike [Japan](https://wikipedia.org/wiki/Japan "Japan"), makes landfall, causing at least 30 fatalities and sinking at least 64 ships.
 
-## Year - 1979
- A [bright flash](https://wikipedia.org/wiki/Vela_incident "Vela incident"), resembling the detonation of a nuclear weapon, is observed near the [Prince Edward Islands](https://wikipedia.org/wiki/Prince_Edward_Islands "Prince Edward Islands"). Its cause is never determined.
+## Year - 1962
+ [Flying Tiger Line Flight 923](https://wikipedia.org/wiki/Flying_Tiger_Line_Flight_923 "Flying Tiger Line Flight 923"), a [Lockheed L-1049H Super Constellation](https://wikipedia.org/wiki/Lockheed_L-1049H_Super_Constellation "Lockheed L-1049H Super Constellation") registered as N6923C, [ditched](https://wikipedia.org/wiki/Ditched "Ditched") into the [Atlantic Ocean](https://wikipedia.org/wiki/Atlantic_Ocean "Atlantic Ocean") killing 28 out the 76 occupants onboard. The remaining 48 were rescued six hours later.
 
-## Year - 1976
- [Red Dye No. 4](https://wikipedia.org/wiki/Scarlet_GN "Scarlet GN") is banned by the US [Food and Drug Administration](https://wikipedia.org/wiki/Food_and_Drug_Administration "Food and Drug Administration") after it is discovered that it causes tumors in the bladders of dogs.
-
-## Year - 1975
- [Sara Jane Moore](https://wikipedia.org/wiki/Sara_Jane_Moore "Sara Jane Moore") tries to assassinate U.S. President Gerald Ford, but is foiled by the Secret Service.
-
-## Year - 1966
- Twenty-four people are killed when [Ansett-ANA Flight 149](https://wikipedia.org/wiki/Ansett-ANA_Flight_149 "Ansett-ANA Flight 149") crashes in [Winton, Queensland](https://wikipedia.org/wiki/Winton,_Queensland "Winton, Queensland"), [Australia](https://wikipedia.org/wiki/Australia "Australia").
-
-## Year - 1965
- The [Indo-Pakistani War of 1965](https://wikipedia.org/wiki/Indo-Pakistani_War_of_1965 "Indo-Pakistani War of 1965") between India and Pakistan over Kashmir ends after the United Nations calls for a ceasefire.
-
-## Year - 1960
- The Sudanese Republic is renamed Mali after the withdrawal of Senegal from the [Mali Federation](https://wikipedia.org/wiki/Mali_Federation "Mali Federation").
+## Year - 1961
+ U.S. President [John F. Kennedy](https://wikipedia.org/wiki/John_F._Kennedy "John F. Kennedy") nominates African American civil rights lawyer [Thurgood Marshall](https://wikipedia.org/wiki/Thurgood_Marshall "Thurgood Marshall") to the [Court of Appeals for the Second Circuit](https://wikipedia.org/wiki/United_States_Court_of_Appeals_for_the_Second_Circuit "United States Court of Appeals for the Second Circuit"), although pro-[segregation](https://wikipedia.org/wiki/Racial_segregation_in_the_United_States "Racial segregation in the United States") Southern senators manage to delay his confirmation until September 11, 1962.
 
 ## Year - 1957
- In Haiti, [François Duvalier](https://wikipedia.org/wiki/Fran%C3%A7ois_Duvalier "François Duvalier") is elected president.
+ [Little Rock schools integration crisis](https://wikipedia.org/wiki/Little_Rock_Nine "Little Rock Nine"): President [Dwight D. Eisenhower](https://wikipedia.org/wiki/Dwight_D._Eisenhower "Dwight D. Eisenhower") sends the [101st Airborne Division](https://wikipedia.org/wiki/101st_Airborne_Division "101st Airborne Division") to [Little Rock, Arkansas](https://wikipedia.org/wiki/Little_Rock,_Arkansas "Little Rock, Arkansas"), and [federalizes](https://wikipedia.org/wiki/National_Guard_(United_States)#Federal_duty "National Guard (United States)") the [Arkansas National Guard](https://wikipedia.org/wiki/Arkansas_National_Guard "Arkansas National Guard"), ordering both to support the [integration](https://wikipedia.org/wiki/School_integration_in_the_United_States "School integration in the United States") of [Little Rock Central High School](https://wikipedia.org/wiki/Little_Rock_Central_High_School "Little Rock Central High School").
 
-## Year - 1953
- The [Four Level Interchange](https://wikipedia.org/wiki/Four_Level_Interchange "Four Level Interchange"), first [stack interchange](https://wikipedia.org/wiki/Stack_interchange "Stack interchange") in the world opened in [Los Angeles](https://wikipedia.org/wiki/Los_Angeles "Los Angeles").
+## Year - 1956
+ A [tropical storm](https://wikipedia.org/wiki/Tropical_cyclone#Classification_and_naming "Tropical cyclone") originating in the eastern [Pacific Ocean](https://wikipedia.org/wiki/Pacific_Ocean "Pacific Ocean") passes into the [Gulf of Mexico](https://wikipedia.org/wiki/Gulf_of_Mexico "Gulf of Mexico") and is upgraded and named [Hurricane Flossy](https://wikipedia.org/wiki/Hurricane_Flossy_(1956) "Hurricane Flossy (1956)") just hours before striking the [Gulf Coast](https://wikipedia.org/wiki/Gulf_Coast_of_the_United_States "Gulf Coast of the United States") and causing 15 deaths and an estimated [USD](https://wikipedia.org/wiki/United_States_dollar "United States dollar")$24.8 million in damages.
 
-## Year - 1948
- [Israeli-Palestine conflict](https://wikipedia.org/wiki/Israeli%E2%80%93Palestinian_conflict "Israeli-Palestinian conflict"): The [All-Palestine Government](https://wikipedia.org/wiki/All-Palestine_Government "All-Palestine Government") is established by the [Arab League](https://wikipedia.org/wiki/Arab_League "Arab League").
+## Year - 1955
+ An all-white jury in [Mississippi](https://wikipedia.org/wiki/Mississippi "Mississippi") finds Roy Bryant and J. W. Milam not guilty in the torture-murder of 14-year-old African American boy [Emmett Till](https://wikipedia.org/wiki/Emmett_Till "Emmett Till").
 
-## Year - 1948
- [Gail Halvorsen](https://wikipedia.org/wiki/Gail_Halvorsen "Gail Halvorsen") [officially starts](https://wikipedia.org/wiki/Operation_Little_Vittles "Operation Little Vittles") [parachuting candy](https://wikipedia.org/wiki/Raisin_Bombers "Raisin Bombers") to children as part of the Berlin Airlift.
+## Year - 1952
+ After being accused of financial improprieties, Senator [Richard Nixon](https://wikipedia.org/wiki/Richard_Nixon "Richard Nixon") delivers his "[Checkers speech](https://wikipedia.org/wiki/Checkers_speech "Checkers speech")" nationwide on television and radio, defending his actions and successfully salvaging his nomination as the Republican candidate for [Vice President](https://wikipedia.org/wiki/Vice_President_of_the_United_States "Vice President of the United States").
 
-## Year - 1941
- [The Holocaust in Ukraine](https://wikipedia.org/wiki/The_Holocaust_in_Ukraine "The Holocaust in Ukraine"): On the Jewish New Year Day, the German SS murders 6,000 Jews in [Vinnytsia](https://wikipedia.org/wiki/Vinnytsia "Vinnytsia"), Ukraine. Those are the survivors of the previous killings that took place a few days earlier in which about 24,000 Jews were executed.
+## Year - 1951
+ [George VI](https://wikipedia.org/wiki/George_VI "George VI"), king of the United Kingdom, has his [left lung removed](https://wikipedia.org/wiki/Pneumonectomy "Pneumonectomy") in an operation after a malignant tumour was found.
 
-## Year - 1939
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): A joint [German-Soviet military parade in Brest-Litovsk](https://wikipedia.org/wiki/German%E2%80%93Soviet_military_parade_in_Brest-Litovsk "German-Soviet military parade in Brest-Litovsk") is held to celebrate the successful invasion of Poland.
+## Year - 1950
+ [Korean War](https://wikipedia.org/wiki/Korean_War "Korean War"): The [Battle of Hill 282](https://wikipedia.org/wiki/Battle_of_Hill_282 "Battle of Hill 282") is the first US friendly-fire incident on British military personnel since World War II.
 
-## Year - 1934
- The [Gresford disaster](https://wikipedia.org/wiki/Gresford_disaster "Gresford disaster") in Wales kills 266 miners and rescuers.
+## Year - 1947
+ A [magnitude 6.9 earthquake](https://wikipedia.org/wiki/1947_Dustabad_earthquake "1947 Dustabad earthquake") strikes South Khorasan in Iran, killing over 500 people.
 
-## Year - 1919
- The [steel strike of 1919](https://wikipedia.org/wiki/Steel_strike_of_1919 "Steel strike of 1919"), led by the Amalgamated Association of Iron and Steel Workers, begins in Pennsylvania before spreading across the United States.
+## Year - 1942
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The [Matanikau action](https://wikipedia.org/wiki/Actions_along_the_Matanikau "Actions along the Matanikau") on [Guadalcanal](https://wikipedia.org/wiki/Guadalcanal "Guadalcanal") begins: U.S. Marines attack Japanese units along the [Matanikau River](https://wikipedia.org/wiki/Matanikau_River "Matanikau River").
 
-## Year - 1914
- A German submarine [sinks](https://wikipedia.org/wiki/Action_of_22_September_1914 "Action of 22 September 1914") three British cruisers over a seventy-minute period, killing almost 1,500 sailors.
+## Year - 1932
+ [Saudi National Day](https://wikipedia.org/wiki/Saudi_National_Day "Saudi National Day"): Crown Prince (later king) [Faisal of Saudi Arabia](https://wikipedia.org/wiki/Faisal_of_Saudi_Arabia "Faisal of Saudi Arabia"), on behalf of [Ibn Saud](https://wikipedia.org/wiki/Ibn_Saud "Ibn Saud"), proclaims the unification of the [Kingdom of Saudi Arabia](https://wikipedia.org/wiki/Saudi_Arabia "Saudi Arabia"), the current iteration of the [Third Saudi State](https://wikipedia.org/wiki/Third_Saudi_State "Third Saudi State").
 
-## Year - 1910
- The [Duke of York's Picture House](https://wikipedia.org/wiki/Duke_of_York%27s_Picture_House "Duke of York's Picture House") opens in Brighton, now the oldest continually operating cinema in Britain.
+## Year - 1920
+ The [Louisiana hurricane](https://wikipedia.org/wiki/1920_Louisiana_hurricane "1920 Louisiana hurricane") dissipated over [Kansas](https://wikipedia.org/wiki/Kansas "Kansas") after forcing around 4,500 people to evacuate and causing $1.45 million in damages.
 
-## Year - 1896
- [Queen Victoria](https://wikipedia.org/wiki/Queen_Victoria "Queen Victoria") surpasses her grandfather King George III as the longest reigning monarch in British history (later surpassed by her great-great-granddaughter [Elizabeth II](https://wikipedia.org/wiki/Elizabeth_II "Elizabeth II") on 9 September 2015).
+## Year - 1918
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): [The Battle of Haifa](https://wikipedia.org/wiki/Battle_of_Haifa_(1918) "Battle of Haifa (1918)") takes place in present-day [Israel](https://wikipedia.org/wiki/Haifa "Haifa"), part of the [Ottoman Empire](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire") at that time.
 
-## Year - 1892
- A locomotive shunting [falls into a hole in the ground](https://wikipedia.org/wiki/Lindal_railway_incident "Lindal railway incident"), leading to the burial of the locomotive.
+## Year - 1913
+ The [United Mine Workers of America](https://wikipedia.org/wiki/United_Mine_Workers_of_America "United Mine Workers of America") launch a strike which eventually escalated into the [Colorado Coalfield War](https://wikipedia.org/wiki/Colorado_Coalfield_War "Colorado Coalfield War").
 
-## Year - 1891
- The first [hydropower plant](https://wikipedia.org/wiki/Hydropower_plant "Hydropower plant") of [Finland](https://wikipedia.org/wiki/Finland "Finland") is commissioned along the [Tammerkoski](https://wikipedia.org/wiki/Tammerkoski "Tammerkoski") rapids in [Tampere](https://wikipedia.org/wiki/Tampere "Tampere"), [Pirkanmaa](https://wikipedia.org/wiki/Pirkanmaa "Pirkanmaa").
+## Year - 1905
+ Norway and Sweden sign the Karlstad Treaty, peacefully [dissolving](https://wikipedia.org/wiki/Dissolution_of_the_union_between_Norway_and_Sweden "Dissolution of the union between Norway and Sweden") the Union between the two countries.
 
-## Year - 1885
- [Lord Randolph Churchill](https://wikipedia.org/wiki/Lord_Randolph_Churchill "Lord Randolph Churchill") makes a speech in Ulster in opposition to the [Irish Home Rule movement](https://wikipedia.org/wiki/Irish_Home_Rule_movement "Irish Home Rule movement").
+## Year - 1899
+ The American Asiatic Squadron destroys a Filipino battery at the [Battle of Olongapo](https://wikipedia.org/wiki/Battle_of_Olongapo "Battle of Olongapo").
 
-## Year - 1866
- The [Battle of Curupayty](https://wikipedia.org/wiki/Battle_of_Curupayty "Battle of Curupayty") is Paraguay's only significant victory in the [Paraguayan War](https://wikipedia.org/wiki/Paraguayan_War "Paraguayan War").
+## Year - 1884
+ On the night of 23-24 September, the steamship <i>Arctique</i> runs aground near [Cape Virgenes](https://wikipedia.org/wiki/Cape_Virgenes "Cape Virgenes") leading to the discovery of nearby [placer](https://wikipedia.org/wiki/Placer_mining "Placer mining") gold, beginning the [Tierra del Fuego gold rush](https://wikipedia.org/wiki/Tierra_del_Fuego_gold_rush "Tierra del Fuego gold rush").
 
-## Year - 1862
- A preliminary version of the [Emancipation Proclamation](https://wikipedia.org/wiki/Emancipation_Proclamation "Emancipation Proclamation") is released by Abraham Lincoln.
+## Year - 1879
+ The [Macedo-Romanian Cultural Society](https://wikipedia.org/wiki/Macedo-Romanian_Cultural_Society "Macedo-Romanian Cultural Society") is founded.
 
-## Year - 1857
- The Russian warship <i>[Lefort](https://wikipedia.org/wiki/Russian_ship_of_the_line_Lefort "Russian ship of the line Lefort")</i> capsizes and sinks during a storm in the Gulf of Finland, killing all 826 aboard.
+## Year - 1868
+ The [Grito de Lares](https://wikipedia.org/wiki/Grito_de_Lares "Grito de Lares") occurs in Puerto Rico against Spanish rule.
 
-## Year - 1823
- [Joseph Smith](https://wikipedia.org/wiki/Joseph_Smith "Joseph Smith") claims to have found the [golden plates](https://wikipedia.org/wiki/Golden_plates "Golden plates") after being directed by God through the Angel Moroni to the place where they were buried.
+## Year - 1846
+ Astronomers [Urbain Le Verrier](https://wikipedia.org/wiki/Urbain_Le_Verrier "Urbain Le Verrier"), [John Couch Adams](https://wikipedia.org/wiki/John_Couch_Adams "John Couch Adams") and [Johann Gottfried Galle](https://wikipedia.org/wiki/Johann_Gottfried_Galle "Johann Gottfried Galle") collaborate on the [discovery of Neptune](https://wikipedia.org/wiki/Discovery_of_Neptune "Discovery of Neptune").
 
-## Year - 1792
- <i>Primidi [Vendémiaire](https://wikipedia.org/wiki/Vend%C3%A9miaire "Vendémiaire")</i> of year one of the French Republican Calendar as the French First Republic comes into being.
+## Year - 1821
+ [Tripolitsa](https://wikipedia.org/wiki/Siege_of_Tripolitsa "Siege of Tripolitsa"), Greece, is captured by Greek rebels during the Greek War of Independence.
 
-## Year - 1789
- [Battle of Rymnik](https://wikipedia.org/wiki/Battle_of_Rymnik "Battle of Rymnik"): Alexander Suvorov's Russian and allied army defeats superior Ottoman Empire forces.
+## Year - 1803
+ [Second Anglo-Maratha War](https://wikipedia.org/wiki/Second_Anglo-Maratha_War "Second Anglo-Maratha War"): The [Battle of Assaye](https://wikipedia.org/wiki/Battle_of_Assaye "Battle of Assaye") is fought between the [British East India Company](https://wikipedia.org/wiki/British_East_India_Company "British East India Company") and the [Maratha Empire](https://wikipedia.org/wiki/Maratha_Confederacy "Maratha Confederacy") in India.
 
-## Year - 1789
- The office of [United States Postmaster General](https://wikipedia.org/wiki/United_States_Postmaster_General "United States Postmaster General") is established.
+## Year - 1779
+ [American Revolution](https://wikipedia.org/wiki/American_Revolution "American Revolution"): [John Paul Jones](https://wikipedia.org/wiki/John_Paul_Jones "John Paul Jones"), naval commander of the United States, on board the [USS <i>Bonhomme Richard</i>](https://wikipedia.org/wiki/USS_Bonhomme_Richard_(1765) "USS Bonhomme Richard (1765)"), wins the [Battle of Flamborough Head](https://wikipedia.org/wiki/Battle_of_Flamborough_Head "Battle of Flamborough Head").
 
-## Year - 1776
- [Nathan Hale](https://wikipedia.org/wiki/Nathan_Hale "Nathan Hale") is hanged for spying during the American Revolution.
+## Year - 1642
+ [First English Civil War](https://wikipedia.org/wiki/First_English_Civil_War "First English Civil War"): The [Battle of Powick Bridge](https://wikipedia.org/wiki/Battle_of_Powick_Bridge "Battle of Powick Bridge"), the first engagement between the primary field armies of the [Royalists](https://wikipedia.org/wiki/Cavalier "Cavalier") and the [Parliamentarians](https://wikipedia.org/wiki/Roundheads "Roundheads"), ended in a Royalist victory.
 
-## Year - 1761
- [George III](https://wikipedia.org/wiki/George_III "George III") and [Charlotte of Mecklenburg-Strelitz](https://wikipedia.org/wiki/Charlotte_of_Mecklenburg-Strelitz "Charlotte of Mecklenburg-Strelitz") are [crowned King and Queen](https://wikipedia.org/wiki/Coronation_of_George_III_and_Charlotte "Coronation of George III and Charlotte"), respectively, of the Kingdom of Great Britain.
+## Year - 1561
+ King [Philip II of Spain](https://wikipedia.org/wiki/Philip_II_of_Spain "Philip II of Spain") issues [cedula](https://wikipedia.org/wiki/Cedula_de_identidad "Cedula de identidad"), ordering a halt to colonizing efforts in Florida.
 
-## Year - 1711
- The first attacks of the [Tuscarora War](https://wikipedia.org/wiki/Tuscarora_War "Tuscarora War") begin in present-day [North Carolina](https://wikipedia.org/wiki/North_Carolina "North Carolina").
+## Year - 1459
+ The [Battle of Blore Heath](https://wikipedia.org/wiki/Battle_of_Blore_Heath "Battle of Blore Heath"), the first major battle of the English Wars of the Roses, is won by the Yorkists.
 
-## Year - 1692
- [Martha Corey](https://wikipedia.org/wiki/Martha_Corey "Martha Corey"), [Mary Eastey](https://wikipedia.org/wiki/Mary_Eastey "Mary Eastey"), [Alice Parker](https://wikipedia.org/wiki/Alice_Parker_(Salem_witch_trials) "Alice Parker (Salem witch trials)"), [Mary Parker](https://wikipedia.org/wiki/Mary_Parker_(Salem_witch_trials) "Mary Parker (Salem witch trials)"), [Ann Pudeator](https://wikipedia.org/wiki/Ann_Pudeator "Ann Pudeator"), [Wilmot Redd](https://wikipedia.org/wiki/Wilmot_Redd "Wilmot Redd"), [Margaret Scott](https://wikipedia.org/wiki/Margaret_Scott_(Salem_witch_trials) "Margaret Scott (Salem witch trials)"), and [Samuel Wardwell](https://wikipedia.org/wiki/Samuel_Wardwell "Samuel Wardwell") are hanged, the last of those to be executed in the [Salem witch trials](https://wikipedia.org/wiki/Salem_witch_trials "Salem witch trials").
+## Year - 1409
+ The [Battle of Kherlen](https://wikipedia.org/wiki/Battle_of_Kherlen "Battle of Kherlen") is the second significant victory over Ming dynasty China by the Mongols since 1368.
 
-## Year - 1586
- [Eighty Years' War](https://wikipedia.org/wiki/Eighty_Years%27_War "Eighty Years' War"): A Spanish force led by the [Marquis del Vasto](https://wikipedia.org/wiki/Alfonso_F%C3%A9lix_de_%C3%81valos_Aquino_y_Gonzaga,_Marquis_del_Vasto "Alfonso Félix de Ávalos Aquino y Gonzaga, Marquis del Vasto") successfully fights its way past a joint [English](https://wikipedia.org/wiki/Kingdom_of_England "Kingdom of England")/[Dutch](https://wikipedia.org/wiki/Dutch_Republic "Dutch Republic") ambush in the [Battle of Zutphen](https://wikipedia.org/wiki/Battle_of_Zutphen "Battle of Zutphen").
+## Year - 1338
+ The [Battle of Arnemuiden](https://wikipedia.org/wiki/Battle_of_Arnemuiden "Battle of Arnemuiden"), in which a French force defeats the English, is the first naval battle of the [Hundred Years' War](https://wikipedia.org/wiki/Hundred_Years%27_War "Hundred Years' War") and the first naval battle in which gunpowder artillery is used.
 
-## Year - 1499
- The [Treaty of Basel](https://wikipedia.org/wiki/Treaty_of_Basel_(1499) "Treaty of Basel (1499)") concludes the [Swabian War](https://wikipedia.org/wiki/Swabian_War "Swabian War").
+## Year - 1122
+ [Pope Callixtus II](https://wikipedia.org/wiki/Pope_Callixtus_II "Pope Callixtus II") and Holy Roman Emperor [Henry V](https://wikipedia.org/wiki/Henry_V,_Holy_Roman_Emperor "Henry V, Holy Roman Emperor") agree to the [Concordat of Worms](https://wikipedia.org/wiki/Concordat_of_Worms "Concordat of Worms") to put an end to the [Investiture Controversy](https://wikipedia.org/wiki/Investiture_Controversy "Investiture Controversy").
 
-## Year - 1359
- An Aragonese cavalry force defeats a superior Castilian cavalry force in the [Battle of Araviana](https://wikipedia.org/wiki/Battle_of_Araviana "Battle of Araviana") during the [War of the Two Peters](https://wikipedia.org/wiki/War_of_the_Two_Peters "War of the Two Peters").
-
-## Year - 1236
- The Samogitians defeat the Livonian Brothers of the Sword in the [Battle of Saule](https://wikipedia.org/wiki/Battle_of_Saule "Battle of Saule").
-
-## Year - 904
-The warlord [Zhu Quanzhong](https://wikipedia.org/wiki/Zhu_Quanzhong "Zhu Quanzhong") kills [Emperor Zhaozong](https://wikipedia.org/wiki/Emperor_Zhaozong_of_Tang "Emperor Zhaozong of Tang"), the penultimate emperor of the Tang dynasty, after seizing control of the imperial government.
+## Year - 38
+Drusilla](https://wikipedia.org/wiki/Julia_Drusilla "Julia Drusilla"), [Caligula](https://wikipedia.org/wiki/Caligula "Caligula")'s sister who died in June, with whom the emperor is said to have an incestuous relationship, is deified.
 
 <br />
 
-> _Last Updated: 9/22/2025, 2:44:01 PM (in GMT)_
+> _Last Updated: 9/23/2025, 3:10:28 AM (in GMT)_
