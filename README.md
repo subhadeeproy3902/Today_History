@@ -144,4 +144,4 @@ For the last time, the Roman Senate chooses an emperor; they elect 75-year-old [
 
 <br />
 
-> _Last Updated: 9/25/2025, 3:21:39 AM (in GMT)_
+> _Last Updated: 9/25/2025, 2:44:54 PM (in GMT)_
