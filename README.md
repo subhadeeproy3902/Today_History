@@ -144,4 +144,4 @@ Ragenfrid defeats Theudoald at the [Battle of Compiègne](https://wikipedia.org/
 
 <br />
 
-> _Last Updated: 9/26/2025, 3:12:00 AM (in GMT)_
+> _Last Updated: 9/26/2025, 2:40:56 PM (in GMT)_
