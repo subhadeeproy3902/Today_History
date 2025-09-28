@@ -177,4 +177,4 @@ Constantius II [defeats](https://wikipedia.org/wiki/Battle_of_Mursa_Major "Battl
 
 <br />
 
-> _Last Updated: 9/28/2025, 3:26:44 AM (in GMT)_
+> _Last Updated: 9/28/2025, 2:37:31 PM (in GMT)_
