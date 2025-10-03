@@ -138,4 +138,4 @@ C - 2457 BC - [Gaecheonjeol](https://wikipedia.org/wiki/Gaecheonjeol "Gaecheonje
 
 <br />
 
-> _Last Updated: 10/3/2025, 3:08:59 AM (in GMT)_
+> _Last Updated: 10/3/2025, 2:41:55 PM (in GMT)_
