@@ -1,140 +1,201 @@
 
 # Today's History 📜
 
-15th October 2025
+16th October 2025
 
 
-## Year - 2018
- 13-year-old American girl, [Jayme Closs](https://wikipedia.org/wiki/Kidnapping_of_Jayme_Closs "Kidnapping of Jayme Closs"), is kidnapped from her [Barron, Wisconsin](https://wikipedia.org/wiki/Barron,_Wisconsin "Barron, Wisconsin") home after her parents were both murdered.
+## Year - 2024
+ [Yahya Sinwar](https://wikipedia.org/wiki/Yahya_Sinwar "Yahya Sinwar"), leader of [Hamas](https://wikipedia.org/wiki/Hamas "Hamas"), is killed in a firefight during the [Gaza war](https://wikipedia.org/wiki/Gaza_war "Gaza war")
 
-## Year - 2016
- One hundred and ninety-seven nations amend the [Montreal Protocol](https://wikipedia.org/wiki/Montreal_Protocol "Montreal Protocol") to include a phase-out of hydrofluorocarbons.
+## Year - 2017
+ [Storm Ophelia](https://wikipedia.org/wiki/Hurricane_Ophelia_(2017) "Hurricane Ophelia (2017)") strikes the U.K. and Ireland causing major damage and power loss.
 
 ## Year - 2013
- The 7.2 <a href="https://wikipedia.org/wiki/Seismic_magnitude_scales#Mw" title="Seismic magnitude scales"><link rel="mw-deduplicated-inline-style" href="mw-data:TemplateStyles:r1038841319">
-<span class="rt-commentedText tooltip" title="Moment mag. scale">M<sub>w</sub></span></a> [Bohol earthquake](https://wikipedia.org/wiki/2013_Bohol_earthquake "2013 Bohol earthquake") strikes the Philippines. At least 215 were killed.
+ [Lao Airlines Flight 301](https://wikipedia.org/wiki/Lao_Airlines_Flight_301 "Lao Airlines Flight 301") crashes on approach to Pakse International Airport in Laos, killing 49 people.
 
-## Year - 2008
- The [Dow Jones Industrial Average](https://wikipedia.org/wiki/Dow_Jones_Industrial_Average "Dow Jones Industrial Average") closes down 733.08 points, or 7.87%, the [second worst percentage drop](https://wikipedia.org/wiki/Black_Monday_(1987) "Black Monday (1987)") in the Dow's history.
+## Year - 2002
+ The [Bibliotheca Alexandrina](https://wikipedia.org/wiki/Bibliotheca_Alexandrina "Bibliotheca Alexandrina") opens in Egypt, commemorating the ancient library of Alexandria.
 
-## Year - 2007
- Seventeen activists in New Zealand are arrested in the country's first post-9/11 [anti-terrorism raids](https://wikipedia.org/wiki/2007_New_Zealand_police_raids "2007 New Zealand police raids").
+## Year - 1999
+ The magnitude 7.1 [Hector Mine earthquake](https://wikipedia.org/wiki/1999_Hector_Mine_earthquake "1999 Hector Mine earthquake") strikes Southern California
 
-## Year - 2006
- The 6.7 <a href="https://wikipedia.org/wiki/Seismic_magnitude_scales#Mw" title="Seismic magnitude scales"><style data-mw-deduplicate="TemplateStyles:r1038841319">.mw-parser-output .tooltip-dotted{border-bottom:1px dotted;cursor:help}</style>
-<span class="rt-commentedText tooltip" title="Moment mag. scale">M<sub>w</sub></span></a> [Kiholo Bay earthquake](https://wikipedia.org/wiki/2006_Kiholo_Bay_earthquake "2006 Kiholo Bay earthquake") rocks Hawaii, causing property damage, injuries, landslides, power outages, and the closure of Honolulu International Airport.
+## Year - 1998
+ Former Chilean dictator [Augusto Pinochet](https://wikipedia.org/wiki/Augusto_Pinochet "Augusto Pinochet") is [arrested](https://wikipedia.org/wiki/Indictment_and_arrest_of_Augusto_Pinochet "Indictment and arrest of Augusto Pinochet") in London on a murder extradition warrant.
 
-## Year - 2003
- China launches [Shenzhou 5](https://wikipedia.org/wiki/Shenzhou_5 "Shenzhou 5"), its first crewed space mission.
+## Year - 1996
+ Eighty-four football fans die and 180 are injured in a massive [crush](https://wikipedia.org/wiki/Estadio_Doroteo_Guamuch_Flores_disaster "Estadio Doroteo Guamuch Flores disaster") at [a match](https://wikipedia.org/wiki/Estadio_Mateo_Flores#The_October_16_disaster "Estadio Mateo Flores") in Guatemala City.
 
-## Year - 2001
- NASA's [Galileo spacecraft](https://wikipedia.org/wiki/Galileo_spacecraft "Galileo spacecraft") passes within 112 miles (180 km) of Jupiter's moon Io.
+## Year - 1995
+ The [Skye Bridge](https://wikipedia.org/wiki/Skye_Bridge "Skye Bridge") in Scotland is opened.
 
-## Year - 1997
- The [Cassini probe](https://wikipedia.org/wiki/Cassini%E2%80%93Huygens "Cassini-Huygens") launches from Cape Canaveral on its way to Saturn.
-
-## Year - 1994
- The United States, under the [Clinton administration](https://wikipedia.org/wiki/Clinton_administration "Clinton administration"), returns Haiti's first democratically elected president, [Jean-Bertrand Aristide](https://wikipedia.org/wiki/Jean-Bertrand_Aristide "Jean-Bertrand Aristide"), to the island.
+## Year - 1995
+ The [Million Man March](https://wikipedia.org/wiki/Million_Man_March "Million Man March") takes place in Washington, D.C. About 837,000 attend.
 
 ## Year - 1991
- The leaders of the [Baltic States](https://wikipedia.org/wiki/Baltic_States "Baltic States"), [Arnold Rüütel](https://wikipedia.org/wiki/Arnold_R%C3%BC%C3%BCtel "Arnold Rüütel") of [Estonia](https://wikipedia.org/wiki/Estonia "Estonia"), [Anatolijs Gorbunovs](https://wikipedia.org/wiki/Anatolijs_Gorbunovs "Anatolijs Gorbunovs") of [Latvia](https://wikipedia.org/wiki/Latvia "Latvia") and [Vytautas Landsbergis](https://wikipedia.org/wiki/Vytautas_Landsbergis "Vytautas Landsbergis") of [Lithuania](https://wikipedia.org/wiki/Lithuania "Lithuania"), signed the [OSCE](https://wikipedia.org/wiki/OSCE "OSCE") Final Act in [Helsinki](https://wikipedia.org/wiki/Helsinki "Helsinki"), Finland.
+ George Hennard [runs amok](https://wikipedia.org/wiki/Luby%27s_shooting "Luby's shooting") in Killeen, Texas, killing 23 and wounding 20.
 
-## Year - 1991
- The "[Oh-My-God particle](https://wikipedia.org/wiki/Oh-My-God_particle "Oh-My-God particle")", an [ultra-high-energy cosmic ray](https://wikipedia.org/wiki/Ultra-high-energy_cosmic_ray "Ultra-high-energy cosmic ray") measured at 40,000,000 times that of the highest energy protons produced in a [particle accelerator](https://wikipedia.org/wiki/Particle_accelerator "Particle accelerator"), is observed at the [University of Utah](https://wikipedia.org/wiki/University_of_Utah "University of Utah") [HiRes](https://wikipedia.org/wiki/High_Resolution_Fly%27s_Eye_Cosmic_Ray_Detector "High Resolution Fly's Eye Cosmic Ray Detector") observatory in [Dugway Proving Ground](https://wikipedia.org/wiki/Dugway_Proving_Ground "Dugway Proving Ground"), [Utah](https://wikipedia.org/wiki/Utah "Utah").
+## Year - 1984
+ [Desmond Tutu](https://wikipedia.org/wiki/Desmond_Tutu "Desmond Tutu") is awarded the Nobel Peace Prize.
 
-## Year - 1990
- Soviet Union leader [Mikhail Gorbachev](https://wikipedia.org/wiki/Mikhail_Gorbachev "Mikhail Gorbachev") is awarded the [Nobel Peace Prize](https://wikipedia.org/wiki/Nobel_Peace_Prize "Nobel Peace Prize") for his efforts to lessen Cold War tensions and open up his nation.
+## Year - 1978
+ Cardinal Karol Wojtyła is [elected](https://wikipedia.org/wiki/October_1978_papal_conclave "October 1978 papal conclave") to the papacy as [Pope John Paul II](https://wikipedia.org/wiki/Pope_John_Paul_II "Pope John Paul II"), he becomes the first non-Italian pontiff since 1523.
 
-## Year - 1989
- [Wayne Gretzky](https://wikipedia.org/wiki/Wayne_Gretzky "Wayne Gretzky") becomes the all-time leading points scorer in the [NHL](https://wikipedia.org/wiki/NHL "NHL").
+## Year - 1975
+ The Australian Coalition sparks a [constitutional crisis](https://wikipedia.org/wiki/1975_Australian_constitutional_crisis "1975 Australian constitutional crisis") when they vote to defer funding for the government's annual budget.
 
-## Year - 1987
- A [coup d'état](https://wikipedia.org/wiki/1987_Burkina_Faso_coup_d%27%C3%A9tat "1987 Burkina Faso coup d'état") in Burkina Faso overthrows and kills then President [Thomas Sankara](https://wikipedia.org/wiki/Thomas_Sankara "Thomas Sankara").
+## Year - 1975
+ Three-year-old [Rahima Banu](https://wikipedia.org/wiki/Rahima_Banu "Rahima Banu"), from Bangladesh, is the last known case of naturally occurring smallpox.
 
-## Year - 1987
- [Aero Trasporti Italiani Flight 460](https://wikipedia.org/wiki/Aero_Trasporti_Italiani_Flight_460 "Aero Trasporti Italiani Flight 460") crashes near Conca di Crezzo, [Italy](https://wikipedia.org/wiki/Italy "Italy"), killing all 37 people on board.
+## Year - 1975
+ Indonesian troops kill the [Balibo Five](https://wikipedia.org/wiki/Balibo_Five "Balibo Five"), a group of Australian journalists, in Portuguese Timor.
 
-## Year - 1979
- A [coup d'état](https://wikipedia.org/wiki/1979_Salvadoran_coup_d%27%C3%A9tat "1979 Salvadoran coup d'état") in El Salvador overthrows President [Carlos Humberto Romero](https://wikipedia.org/wiki/Carlos_Humberto_Romero "Carlos Humberto Romero") and begins the 12 year-long [Salvadoran Civil War](https://wikipedia.org/wiki/Salvadoran_Civil_War "Salvadoran Civil War").
-
-## Year - 1979
- Supporters of the Malta Labour Party [ransack and destroy](https://wikipedia.org/wiki/Black_Monday_(Malta) "Black Monday (Malta)") the <i>Times of Malta</i> building and other locations associated with the Nationalist Party.
+## Year - 1973
+ [Henry Kissinger](https://wikipedia.org/wiki/Henry_Kissinger "Henry Kissinger") and [Lê Đức Thọ](https://wikipedia.org/wiki/L%C3%AA_%C4%90%E1%BB%A9c_Th%E1%BB%8D "Lê Đức Thọ") are awarded the Nobel Peace Prize.
 
 ## Year - 1970
- During the construction of Australia's [West Gate Bridge](https://wikipedia.org/wiki/West_Gate_Bridge "West Gate Bridge"), a span of the bridge falls and kills 35 workers. The incident is the country's worst industrial accident to this day.
+ Canadian Prime Minister Pierre Trudeau invokes the [War Measures Act](https://wikipedia.org/wiki/War_Measures_Act "War Measures Act") during the [October Crisis](https://wikipedia.org/wiki/October_Crisis "October Crisis").
 
-## Year - 1966
- The [Black Panther Party](https://wikipedia.org/wiki/Black_Panther_Party "Black Panther Party") is created by [Huey P. Newton](https://wikipedia.org/wiki/Huey_P._Newton "Huey P. Newton") and [Bobby Seale](https://wikipedia.org/wiki/Bobby_Seale "Bobby Seale").
+## Year - 1968
+ [Yasunari Kawabata](https://wikipedia.org/wiki/Yasunari_Kawabata "Yasunari Kawabata") becomes the first Japanese person to be awarded the Nobel Prize in Literature.
 
-## Year - 1965
- Vietnam War: A draft card is burned during an anti-war rally by the [Catholic Worker Movement](https://wikipedia.org/wiki/Catholic_Worker_Movement "Catholic Worker Movement"), resulting in the first arrest under a new law.
+## Year - 1968
+ Kingston, Jamaica is rocked by the [Rodney riots](https://wikipedia.org/wiki/Rodney_riots "Rodney riots"), inspired by the barring of [Walter Rodney](https://wikipedia.org/wiki/Walter_Rodney "Walter Rodney") from the country.
 
-## Year - 1956
- [FORTRAN](https://wikipedia.org/wiki/FORTRAN "FORTRAN"), the first modern computer language, is first shared with the coding community.
+## Year - 1968
+ Tommie Smith and John Carlos are ejected from the US Olympic team for participating in the [Olympics Black Power salute](https://wikipedia.org/wiki/1968_Olympics_Black_Power_salute "1968 Olympics Black Power salute").
 
-## Year - 1954
- [Hurricane Hazel](https://wikipedia.org/wiki/Hurricane_Hazel "Hurricane Hazel") devastates the eastern seaboard of North America, killing 95 and causing massive floods as far north as Toronto.
+## Year - 1964
+ [Leonid Brezhnev](https://wikipedia.org/wiki/Leonid_Brezhnev "Leonid Brezhnev") becomes leader of the Soviet Communist Party, while [Alexei Kosygin](https://wikipedia.org/wiki/Alexei_Kosygin "Alexei Kosygin") becomes the head of government.
+
+## Year - 1964
+ China detonates its [first nuclear weapon](https://wikipedia.org/wiki/Project_596 "Project 596").
+
+## Year - 1962
+ [Cuban Missile Crisis](https://wikipedia.org/wiki/Cuban_Missile_Crisis "Cuban Missile Crisis") begins: U.S. President John F. Kennedy is informed of photos taken on October 14 by a U-2 showing nuclear missiles (the crisis will last for 13 days starting from this point).
+
+## Year - 1953
+ [Cuban](https://wikipedia.org/wiki/Cuba "Cuba") revolutionary [Fidel Castro](https://wikipedia.org/wiki/Fidel_Castro "Fidel Castro") delivers his "[History Will Absolve Me](https://wikipedia.org/wiki/History_Will_Absolve_Me "History Will Absolve Me")" speech, and is sentenced to 15 years' imprisonment by the [Fulgencio Batista](https://wikipedia.org/wiki/Fulgencio_Batista "Fulgencio Batista") government for leading an [attack on the Moncada Barracks](https://wikipedia.org/wiki/Attack_on_the_Moncada_Barracks "Attack on the Moncada Barracks").
 
 ## Year - 1951
- Mexican chemist [Luis E. Miramontes](https://wikipedia.org/wiki/Luis_E._Miramontes "Luis E. Miramontes") completes the synthesis of [norethisterone](https://wikipedia.org/wiki/Norethisterone "Norethisterone"), the basis of an early oral contraceptive.
+ The first Prime Minister of Pakistan, [Liaquat Ali Khan](https://wikipedia.org/wiki/Liaquat_Ali_Khan "Liaquat Ali Khan"), is assassinated in Rawalpindi.
 
-## Year - 1944
- World War II: Germany [replaces the Hungarian government](https://wikipedia.org/wiki/Operation_Panzerfaust "Operation Panzerfaust") after Hungary announces an armistice with the Soviet Union.
+## Year - 1949
+ The Greek Communist Party announces a "temporary cease-fire", thus ending the [Greek Civil War](https://wikipedia.org/wiki/Greek_Civil_War "Greek Civil War").
+
+## Year - 1947
+ The Philippines takes over the administration of the [Turtle Islands](https://wikipedia.org/wiki/Turtle_Islands,_Tawi-Tawi "Turtle Islands, Tawi-Tawi") and the [Mangsee Islands](https://wikipedia.org/wiki/Mangsee_Islands "Mangsee Islands") from the United Kingdom.
+
+## Year - 1946
+ [Nuremberg trials](https://wikipedia.org/wiki/Nuremberg_trials "Nuremberg trials"): Ten defendants found guilty by the International Military Tribunal [are executed by hanging](https://wikipedia.org/wiki/Nuremberg_executions "Nuremberg executions").
+
+## Year - 1943
+ Holocaust in Italy: [Raid on the Roman Ghetto](https://wikipedia.org/wiki/Raid_on_the_Roman_Ghetto "Raid on the Roman Ghetto").
 
 ## Year - 1940
- President [Lluís Companys](https://wikipedia.org/wiki/Llu%C3%ADs_Companys "Lluís Companys") of Catalonia is executed by the [Francoist](https://wikipedia.org/wiki/Francoist "Francoist") government.
+ Holocaust in Poland: The [Warsaw Ghetto](https://wikipedia.org/wiki/Warsaw_Ghetto "Warsaw Ghetto") is established.
 
 ## Year - 1939
- The New York Municipal Airport (later renamed [LaGuardia Airport](https://wikipedia.org/wiki/LaGuardia_Airport "LaGuardia Airport")) is dedicated.
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [No. 603 Squadron RAF](https://wikipedia.org/wiki/No._603_Squadron_RAF "No. 603 Squadron RAF") intercepts the first Luftwaffe raid on Britain.
 
-## Year - 1932
- Tata Airlines (later to become [Air India](https://wikipedia.org/wiki/Air_India "Air India")) makes its first flight.
-
-## Year - 1928
- The airship <i>[Graf Zeppelin](https://wikipedia.org/wiki/LZ_127_Graf_Zeppelin "LZ 127 Graf Zeppelin")</i> completes its first trans-Atlantic flight, landing at [Lakehurst, New Jersey](https://wikipedia.org/wiki/Lakehurst,_New_Jersey "Lakehurst, New Jersey"), United States.
+## Year - 1934
+ Chinese Communists begin the [Long March](https://wikipedia.org/wiki/Long_March "Long March") to escape Nationalist encirclement.
 
 ## Year - 1923
- The [German Rentenmark](https://wikipedia.org/wiki/German_Rentenmark "German Rentenmark") is introduced in Germany to counter [hyperinflation in the Weimar Republic](https://wikipedia.org/wiki/Hyperinflation_in_the_Weimar_Republic "Hyperinflation in the Weimar Republic").
+ [Walt Disney](https://wikipedia.org/wiki/Walt_Disney "Walt Disney") and his brother, [Roy](https://wikipedia.org/wiki/Roy_O._Disney "Roy O. Disney"), found the <i>Disney Brothers Cartoon Studio</i>, today known as [The Walt Disney Company](https://wikipedia.org/wiki/The_Walt_Disney_Company "The Walt Disney Company").
 
-## Year - 1910
- [Airship <i>America</i>](https://wikipedia.org/wiki/America_(airship) "America (airship)") is launched from New Jersey in the first attempt to cross the Atlantic by a powered aircraft.
+## Year - 1919
+ Adolf Hitler delivers his first public address at a meeting of the [German Workers' Party](https://wikipedia.org/wiki/German_Workers%27_Party "German Workers' Party").
 
-## Year - 1888
- The ["From Hell" letter](https://wikipedia.org/wiki/From_Hell_letter "From Hell letter") allegedly sent by Jack the Ripper is received by investigators.
+## Year - 1916
+ [Margaret Sanger](https://wikipedia.org/wiki/Margaret_Sanger "Margaret Sanger") opens the first family planning clinic in the United States.
 
-## Year - 1878
- The [Edison Electric Light Company](https://wikipedia.org/wiki/Edison_Electric_Light_Company "Edison Electric Light Company") begins operation.
+## Year - 1909
+ [William Howard Taft](https://wikipedia.org/wiki/William_Howard_Taft "William Howard Taft") and [Porfirio Díaz](https://wikipedia.org/wiki/Porfirio_D%C3%ADaz "Porfirio Díaz") hold the first summit between a U.S. and a Mexican president. They narrowly escape assassination.
 
-## Year - 1864
- American Civil War: The Union garrison of Glasgow, Missouri [surrenders](https://wikipedia.org/wiki/Battle_of_Glasgow,_Missouri "Battle of Glasgow, Missouri") to Confederate forces.
+## Year - 1905
+ The [Partition of Bengal](https://wikipedia.org/wiki/Partition_of_Bengal_(1905) "Partition of Bengal (1905)") in India takes place.
 
-## Year - 1815
- [Napoleon](https://wikipedia.org/wiki/Napoleon "Napoleon") begins his exile on Saint Helena in the South Atlantic Ocean.
+## Year - 1891
+ A [diplomatic incident](https://wikipedia.org/wiki/Baltimore_crisis "Baltimore crisis") between the [United States](https://wikipedia.org/wiki/United_States "United States") and [Chile](https://wikipedia.org/wiki/Chile "Chile") occurred after U.S. sailors were attacked in [Valparaíso](https://wikipedia.org/wiki/Valpara%C3%ADso "Valparaíso"), nearly leading to war.
+
+## Year - 1882
+ The [Nickel Plate Railroad](https://wikipedia.org/wiki/New_York,_Chicago_and_St._Louis_Railroad "New York, Chicago and St. Louis Railroad") opens for business.
+
+## Year - 1875
+ [Brigham Young University](https://wikipedia.org/wiki/Brigham_Young_University "Brigham Young University") is founded in Provo, Utah.
+
+## Year - 1869
+ [Girton College, Cambridge](https://wikipedia.org/wiki/Girton_College,_Cambridge "Girton College, Cambridge") is founded, becoming England's first residential college for women.
+
+## Year - 1869
+ The [Cardiff Giant](https://wikipedia.org/wiki/Cardiff_Giant "Cardiff Giant"), one of the most famous American hoaxes, is "discovered".
+
+## Year - 1859
+ [Origins of the American Civil War](https://wikipedia.org/wiki/Origins_of_the_American_Civil_War "Origins of the American Civil War"): [Abolitionist](https://wikipedia.org/wiki/Abolitionism_in_the_United_States "Abolitionism in the United States") [John Brown](https://wikipedia.org/wiki/John_Brown_(abolitionist) "John Brown (abolitionist)") and his supporters [launch a raid](https://wikipedia.org/wiki/John_Brown%27s_raid_on_Harpers_Ferry "John Brown's raid on Harpers Ferry") on [Harpers Ferry, Virginia](https://wikipedia.org/wiki/Harpers_Ferry,_Virginia "Harpers Ferry, Virginia") (now West Virginia).
+
+## Year - 1846
+ [William T. G. Morton](https://wikipedia.org/wiki/William_T._G._Morton "William T. G. Morton") administers ether anesthesia during a surgical operation.
+
+## Year - 1843
+ [William Rowan Hamilton](https://wikipedia.org/wiki/William_Rowan_Hamilton "William Rowan Hamilton") invents [quaternions](https://wikipedia.org/wiki/Quaternion "Quaternion"), a three-dimensional system of complex numbers.
+
+## Year - 1841
+ [Queen's University](https://wikipedia.org/wiki/Queen%27s_University_at_Kingston "Queen's University at Kingston") is founded in the Province of Canada.
+
+## Year - 1836
+ Great Trek: Afrikaner voortrekkers [repulse](https://wikipedia.org/wiki/Battle_of_Vegkop "Battle of Vegkop") a Matabele attack, but lose their livestock.
+
+## Year - 1834
+ Much of the ancient structure of the Palace of Westminster in London [burns to the ground](https://wikipedia.org/wiki/Burning_of_Parliament "Burning of Parliament").
+
+## Year - 1817
+ Simón Bolívar sentences [Manuel Piar](https://wikipedia.org/wiki/Manuel_Piar "Manuel Piar") to death for challenging the racial-caste in Venezuela.
+
+## Year - 1817
+ Italian explorer and archaeologist [Giovanni Belzoni](https://wikipedia.org/wiki/Giovanni_Belzoni "Giovanni Belzoni"), uncovered the [Tomb of Seti I](https://wikipedia.org/wiki/Tomb_of_Seti_I "Tomb of Seti I") in the [Valley of the Kings](https://wikipedia.org/wiki/Valley_of_the_Kings "Valley of the Kings").
+
+## Year - 1813
+ The Sixth Coalition attacks Napoleon in the four-day [Battle of Leipzig](https://wikipedia.org/wiki/Battle_of_Leipzig "Battle of Leipzig").
+
+## Year - 1805
+ War of the Third Coalition: Napoleon [surrounds](https://wikipedia.org/wiki/Battle_of_Ulm "Battle of Ulm") the Austrian army at Ulm.
 
 ## Year - 1793
- Queen [Marie Antoinette](https://wikipedia.org/wiki/Marie_Antoinette "Marie Antoinette") of France is tried and convicted of treason.
+ War of the First Coalition: French victory at the [Battle of Wattignies](https://wikipedia.org/wiki/Battle_of_Wattignies "Battle of Wattignies") forces Austria to raise the siege of Maubeuge.
 
-## Year - 1783
- The [Montgolfier brothers](https://wikipedia.org/wiki/Montgolfier_brothers "Montgolfier brothers")' hot air balloon makes the first human ascent, piloted by [Jean-François Pilâtre de Rozier](https://wikipedia.org/wiki/Jean-Fran%C3%A7ois_Pil%C3%A2tre_de_Rozier "Jean-François Pilâtre de Rozier").
+## Year - 1793
+ French Revolution: Queen [Marie Antoinette](https://wikipedia.org/wiki/Marie_Antoinette "Marie Antoinette") is executed.
 
-## Year - 1781
- The [Battle of Raft Swamp](https://wikipedia.org/wiki/Battle_of_Raft_Swamp "Battle of Raft Swamp") marks the last battle fought in North Carolina during the [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War") with a Patriot victory. It occurred four days before the British surrender at Yorktown.
+## Year - 1780
+ The [Great Hurricane of 1780](https://wikipedia.org/wiki/Great_Hurricane_of_1780 "Great Hurricane of 1780") finishes after its sixth day, killing between 20,000 and 24,000 residents of the Lesser Antilles.
 
-## Year - 1651
- [Qing](https://wikipedia.org/wiki/Qing_Dynasty "Qing Dynasty") forces capture the [island of Zhoushan](https://wikipedia.org/wiki/Zhoushan_Island "Zhoushan Island"). [Zhu Yihai, Prince of Lu](https://wikipedia.org/wiki/Zhu_Yihai "Zhu Yihai"), resident of the island and [regent](https://wikipedia.org/wiki/List_of_emperors_of_the_Ming_dynasty#Southern_Ming "List of emperors of the Ming dynasty") of the [Southern Ming](https://wikipedia.org/wiki/Southern_Ming "Southern Ming"), flees to [Kinmen](https://wikipedia.org/wiki/Kinmen "Kinmen").
+## Year - 1780
+ American Revolutionary War: The British-led [Royalton raid](https://wikipedia.org/wiki/Royalton_raid "Royalton raid") is the last Native American raid on New England.
 
-## Year - 1582
- [Adoption of the Gregorian calendar](https://wikipedia.org/wiki/Adoption_of_the_Gregorian_calendar "Adoption of the Gregorian calendar") begins, eventually leading to near-universal adoption.
+## Year - 1736
+ Mathematician [William Whiston](https://wikipedia.org/wiki/William_Whiston "William Whiston")'s predicted comet fails to strike the Earth.
 
-## Year - 1529
- The [Siege of Vienna](https://wikipedia.org/wiki/Siege_of_Vienna_(1529) "Siege of Vienna (1529)") ends when Austria routs the invading Ottoman forces, ending its European expansion.
+## Year - 1590
+ Prince [Gesualdo](https://wikipedia.org/wiki/Carlo_Gesualdo "Carlo Gesualdo") of Venosa murders his wife and her lover.
 
-## Year - 1211
- [Battle of the Rhyndacus](https://wikipedia.org/wiki/Battle_of_the_Rhyndacus_(1211) "Battle of the Rhyndacus (1211)"): The [Latin emperor](https://wikipedia.org/wiki/Latin_emperor "Latin emperor") [Henry of Flanders](https://wikipedia.org/wiki/Henry_of_Flanders "Henry of Flanders") defeats the [Nicaean emperor](https://wikipedia.org/wiki/Nicaean_emperor "Nicaean emperor") [Theodore I Laskaris](https://wikipedia.org/wiki/Theodore_I_Laskaris "Theodore I Laskaris").
+## Year - 1384
+ [Jadwiga](https://wikipedia.org/wiki/Jadwiga_of_Poland "Jadwiga of Poland") is crowned King of Poland, although she is a woman.
 
-## Year - 1066
- Following the death of Harold II at the [Battle of Hastings](https://wikipedia.org/wiki/Battle_of_Hastings "Battle of Hastings"), [Edgar the Ætheling](https://wikipedia.org/wiki/Edgar_the_%C3%86theling "Edgar the Ætheling") is proclaimed King of England by the [Witan](https://wikipedia.org/wiki/Witan "Witan"); he is never crowned, and concedes power to [William the Conqueror](https://wikipedia.org/wiki/William_the_Conqueror "William the Conqueror") two months later.
+## Year - 1311
+ The [Council of Vienne](https://wikipedia.org/wiki/Council_of_Vienne "Council of Vienne") convenes for the first time.
+
+## Year - 955
+King Otto I [defeats](https://wikipedia.org/wiki/Battle_on_the_Raxa "Battle on the Raxa") a Slavic revolt in what is now Mecklenburg-Vorpommern.
+
+## Year - 912
+[Abd ar-Rahman III](https://wikipedia.org/wiki/Abd_ar-Rahman_III "Abd ar-Rahman III") becomes the eighth Emir of Córdoba.
+
+## Year - 690
+Empress [Wu Zetian](https://wikipedia.org/wiki/Wu_Zetian "Wu Zetian") ascends to the throne of the Tang dynasty and proclaims herself ruler of the Chinese Empire.
+
+## Year - 456
+[Ricimer](https://wikipedia.org/wiki/Ricimer "Ricimer") defeats Avitus at Piacenza and becomes master of the Western Roman Empire.
 
 <br />
 
-> _Last Updated: 10/15/2025, 2:45:48 PM (in GMT)_
+> _Last Updated: 10/16/2025, 3:24:46 AM (in GMT)_
