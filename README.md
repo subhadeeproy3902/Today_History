@@ -138,4 +138,4 @@ A [qaghan](https://wikipedia.org/wiki/Khagan "Khagan") of the [Western Turkic Kh
 
 <br />
 
-> _Last Updated: 11/2/2025, 3:33:44 AM (in GMT)_
+> _Last Updated: 11/2/2025, 2:39:26 PM (in GMT)_
