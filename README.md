@@ -210,4 +210,4 @@ E - 164 BCE - [Judas Maccabeus](https://wikipedia.org/wiki/Judas_Maccabeus "Juda
 
 <br />
 
-> _Last Updated: 11/21/2025, 3:31:07 AM (in GMT)_
+> _Last Updated: 11/21/2025, 2:43:34 PM (in GMT)_
