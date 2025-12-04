@@ -204,4 +204,4 @@ The lay [papal protonotary](https://wikipedia.org/wiki/Protonotary_apostolic "Pr
 
 <br />
 
-> _Last Updated: 12/4/2025, 3:40:48 AM (in GMT)_
+> _Last Updated: 12/4/2025, 2:48:19 PM (in GMT)_
