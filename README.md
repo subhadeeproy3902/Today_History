@@ -132,4 +132,4 @@ Byzantine Emperor [Justin II](https://wikipedia.org/wiki/Justin_II "Justin II"),
 
 <br />
 
-> _Last Updated: 12/7/2025, 3:45:09 AM (in GMT)_
+> _Last Updated: 12/7/2025, 2:41:22 PM (in GMT)_
