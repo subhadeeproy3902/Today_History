@@ -198,4 +198,4 @@ Assassination of [William I of Normandy](https://wikipedia.org/wiki/William_I_of
 
 <br />
 
-> _Last Updated: 12/17/2025, 3:42:14 AM (in GMT)_
+> _Last Updated: 12/17/2025, 2:50:15 PM (in GMT)_
