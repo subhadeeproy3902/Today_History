@@ -1,163 +1,141 @@
 
 # Today's History 📜
 
-19th December 2025
+20th December 2025
 
 
-## Year - 2016
- [A vehicular attack](https://wikipedia.org/wiki/2016_Berlin_truck_attack "2016 Berlin truck attack") in Berlin, Germany, kills 12 and injures 56 people at a [Christmas market](https://wikipedia.org/wiki/Christmas_market "Christmas market").
+## Year - 2024
+ A [mass stabbing](https://wikipedia.org/wiki/Zagreb_school_stabbing "Zagreb school stabbing") occurs in a primary school in [Zagreb, Croatia](https://wikipedia.org/wiki/Zagreb "Zagreb"), in which a 7-year-old pupil is killed and six more are injured by a knife-wielding 19-year-old male.
 
-## Year - 2016
- Russian ambassador to Turkey [Andrei Karlov](https://wikipedia.org/wiki/Andrei_Karlov "Andrei Karlov") is [assassinated](https://wikipedia.org/wiki/Assassination_of_Andrei_Karlov "Assassination of Andrei Karlov") while at an art exhibition in [Ankara](https://wikipedia.org/wiki/Ankara "Ankara"). The assassin, Mevlüt Mert Altıntaş, is shot and killed by a Turkish guard.
+## Year - 2024
+ Six people are killed and over 200 are injured when an anti-Islam activist [drives a car into a crowd](https://wikipedia.org/wiki/2024_Magdeburg_car_attack "2024 Magdeburg car attack") at a Christmas market in [Magdeburg](https://wikipedia.org/wiki/Magdeburg "Magdeburg"), [Germany](https://wikipedia.org/wiki/Germany "Germany").
 
-## Year - 2013
- Spacecraft <i>[Gaia](https://wikipedia.org/wiki/Gaia_(spacecraft) "Gaia (spacecraft)")</i> is launched by the [European Space Agency](https://wikipedia.org/wiki/European_Space_Agency "European Space Agency").
+## Year - 2019
+ The [United States Space Force](https://wikipedia.org/wiki/United_States_Space_Force "United States Space Force") becomes the first new branch of the United States Armed Forces since 1947.
 
-## Year - 2012
- [Park Geun-hye](https://wikipedia.org/wiki/Park_Geun-hye "Park Geun-hye") [is elected](https://wikipedia.org/wiki/2012_South_Korean_presidential_election "2012 South Korean presidential election") the first female [president of South Korea](https://wikipedia.org/wiki/President_of_South_Korea "President of South Korea").
+## Year - 2007
+ The <i>[Portrait of Suzanne Bloch](https://wikipedia.org/wiki/Portrait_of_Suzanne_Bloch "Portrait of Suzanne Bloch")</i> (1904), by the Spanish artist [Pablo Picasso](https://wikipedia.org/wiki/Pablo_Picasso "Pablo Picasso"), and <i>O Lavrador de Café</i> by Brazilian modernist painter [Cândido Portinari](https://wikipedia.org/wiki/C%C3%A2ndido_Portinari "Cândido Portinari"), are stolen from the [São Paulo Museum of Art](https://wikipedia.org/wiki/S%C3%A3o_Paulo_Museum_of_Art "São Paulo Museum of Art") in Brazil. Both will be recovered a few weeks later.
 
-## Year - 2005
- [Chalk's Ocean Airways Flight 101](https://wikipedia.org/wiki/Chalk%27s_Ocean_Airways_Flight_101 "Chalk's Ocean Airways Flight 101") crashes into the [Government Cut](https://wikipedia.org/wiki/Government_Cut "Government Cut") channel immediately after takeoff from [Miami Seaplane Base](https://wikipedia.org/wiki/Miami_Seaplane_Base "Miami Seaplane Base"), killing 20.
+## Year - 2007
+ [Elizabeth II](https://wikipedia.org/wiki/Elizabeth_II "Elizabeth II") becomes the oldest monarch in the history of the United Kingdom, surpassing [Queen Victoria](https://wikipedia.org/wiki/Queen_Victoria "Queen Victoria"), who lived for 81 years and 243 days.
 
-## Year - 2001
- [Argentine economic crisis](https://wikipedia.org/wiki/1998%E2%80%932002_Argentine_great_depression "1998-2002 Argentine great depression"): [December riots](https://wikipedia.org/wiki/December_2001_riots_in_Argentina "December 2001 riots in Argentina"): Riots erupt in [Buenos Aires](https://wikipedia.org/wiki/Buenos_Aires "Buenos Aires"), [Argentina](https://wikipedia.org/wiki/Argentina "Argentina").
+## Year - 2004
+ [Cave Story](https://wikipedia.org/wiki/Cave_Story "Cave Story") releases to the public.
 
-## Year - 2001
- A record high [barometric pressure](https://wikipedia.org/wiki/Atmospheric_pressure "Atmospheric pressure") of 1,085.6 [hectopascals](https://wikipedia.org/wiki/Pascal_(unit) "Pascal (unit)") (32.06 [inHg](https://wikipedia.org/wiki/Inch_of_mercury "Inch of mercury")) is recorded at [Tosontsengel, Khövsgöl](https://wikipedia.org/wiki/Tosontsengel,_Kh%C3%B6vsg%C3%B6l "Tosontsengel, Khövsgöl"), [Mongolia](https://wikipedia.org/wiki/Mongolia "Mongolia").
-
-## Year - 2000
- The Leninist Guerrilla Units wing of the [Communist Labour Party of Turkey/Leninist](https://wikipedia.org/wiki/Communist_Labour_Party_of_Turkey/Leninist "Communist Labour Party of Turkey/Leninist") attack a [Nationalist Movement Party](https://wikipedia.org/wiki/Nationalist_Movement_Party "Nationalist Movement Party") office in [Istanbul](https://wikipedia.org/wiki/Istanbul "Istanbul"), [Turkey](https://wikipedia.org/wiki/Turkey "Turkey"), killing one person and injuring three.
+## Year - 2004
+ A gang of thieves [steal £26.5 million](https://wikipedia.org/wiki/Northern_Bank_robbery "Northern Bank robbery") worth of currency from the [Donegall Square](https://wikipedia.org/wiki/Donegall_Square "Donegall Square") West headquarters of [Northern Bank](https://wikipedia.org/wiki/Northern_Bank "Northern Bank") in [Belfast](https://wikipedia.org/wiki/Belfast "Belfast"), [Northern Ireland](https://wikipedia.org/wiki/Northern_Ireland "Northern Ireland"), United Kingdom, one of the largest [bank robberies](https://wikipedia.org/wiki/Bank_robbery "Bank robbery") in British history.
 
 ## Year - 1999
- [Space Shuttle <i>Discovery</i>](https://wikipedia.org/wiki/Space_Shuttle_Discovery "Space Shuttle Discovery") is launched on [STS-103](https://wikipedia.org/wiki/STS-103 "STS-103"), the third [Hubble Space Telescope](https://wikipedia.org/wiki/Hubble_Space_Telescope "Hubble Space Telescope") servicing mission.
-
-## Year - 1998
- President [Bill Clinton](https://wikipedia.org/wiki/Bill_Clinton "Bill Clinton") is [impeached](https://wikipedia.org/wiki/Impeachment_of_Bill_Clinton "Impeachment of Bill Clinton") by the [United States House of Representatives](https://wikipedia.org/wiki/United_States_House_of_Representatives "United States House of Representatives"), becoming the second president of the United States to be [impeached](https://wikipedia.org/wiki/Federal_impeachment_in_the_United_States "Federal impeachment in the United States").
-
-## Year - 1997
- [SilkAir Flight 185](https://wikipedia.org/wiki/SilkAir_Flight_185 "SilkAir Flight 185") crashes into the [Musi River](https://wikipedia.org/wiki/Musi_River_(Indonesia) "Musi River (Indonesia)"), near [Palembang](https://wikipedia.org/wiki/Palembang "Palembang") in [Indonesia](https://wikipedia.org/wiki/Indonesia "Indonesia"), killing 104.
+ [Macau](https://wikipedia.org/wiki/Macau "Macau") is [handed over](https://wikipedia.org/wiki/Transfer_of_sovereignty_over_Macau "Transfer of sovereignty over Macau") to [China](https://wikipedia.org/wiki/China "China") by [Portugal](https://wikipedia.org/wiki/Portugal "Portugal").
 
 ## Year - 1995
- The United States Government restores federal recognition to the [Nottawaseppi Huron Band of Potawatomi](https://wikipedia.org/wiki/Nottawaseppi_Huron_Band_of_Potawatomi "Nottawaseppi Huron Band of Potawatomi") Native American tribe.
+ [American Airlines Flight 965](https://wikipedia.org/wiki/American_Airlines_Flight_965 "American Airlines Flight 965"), a [Boeing 757](https://wikipedia.org/wiki/Boeing_757 "Boeing 757"), crashes into a mountain 50 km north of [Cali](https://wikipedia.org/wiki/Cali "Cali"), [Colombia](https://wikipedia.org/wiki/Colombia "Colombia"), killing 159 of the 163 people on board.
 
-## Year - 1986
- [Mikhail Gorbachev](https://wikipedia.org/wiki/Mikhail_Gorbachev "Mikhail Gorbachev"), leader of the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union"), releases [Andrei Sakharov](https://wikipedia.org/wiki/Andrei_Sakharov "Andrei Sakharov") and his wife from [exile](https://wikipedia.org/wiki/Exile "Exile") in [Gorky](https://wikipedia.org/wiki/Nizhny_Novgorod "Nizhny Novgorod").
+## Year - 1995
+ [NATO](https://wikipedia.org/wiki/NATO "NATO") begins peacekeeping in [Bosnia](https://wikipedia.org/wiki/Bosnia_and_Herzegovina "Bosnia and Herzegovina").
+
+## Year - 1991
+ A Missouri court sentences the Palestinian militant Zein Isa and his wife Maria to death for the [honor killing of their daughter Palestina](https://wikipedia.org/wiki/Murder_of_Tina_Isa "Murder of Tina Isa").
+
+## Year - 1989
+ The [United States invasion of Panama](https://wikipedia.org/wiki/United_States_invasion_of_Panama "United States invasion of Panama") [deposes](https://wikipedia.org/wiki/Deposition_(politics) "Deposition (politics)") [Manuel Noriega](https://wikipedia.org/wiki/Manuel_Noriega "Manuel Noriega").
+
+## Year - 1988
+ [War on drugs](https://wikipedia.org/wiki/War_on_drugs "War on drugs"): The [United Nations](https://wikipedia.org/wiki/United_Nations "United Nations") agrees upon and promulgates the [United Nations Convention Against Illicit Traffic in Narcotic Drugs and Psychotropic Substances](https://wikipedia.org/wiki/United_Nations_Convention_Against_Illicit_Traffic_in_Narcotic_Drugs_and_Psychotropic_Substances "United Nations Convention Against Illicit Traffic in Narcotic Drugs and Psychotropic Substances"), one of three major drug control treaties currently in force.
+
+## Year - 1987
+ In the worst peacetime sea disaster, the passenger ferry <i>[Doña Paz](https://wikipedia.org/wiki/MV_Do%C3%B1a_Paz "MV Doña Paz")</i> sinks after colliding with the oil tanker [MT <i>Vector</i>](https://wikipedia.org/wiki/MT_Vector "MT Vector") in the [Tablas Strait](https://wikipedia.org/wiki/Tablas_Strait "Tablas Strait") of the [Philippines](https://wikipedia.org/wiki/Philippines "Philippines"), killing an estimated 4,000 people (1,749 official).
 
 ## Year - 1985
- [Aeroflot Flight 101/435](https://wikipedia.org/wiki/Aeroflot_Flight_101/435 "Aeroflot Flight 101/435") is hijacked to China by its first officer.
+ [Pope John Paul II](https://wikipedia.org/wiki/Pope_John_Paul_II "Pope John Paul II") announces the institution of [World Youth Day](https://wikipedia.org/wiki/World_Youth_Day "World Youth Day").
 
 ## Year - 1984
- The [Sino-British Joint Declaration](https://wikipedia.org/wiki/Sino-British_Joint_Declaration "Sino-British Joint Declaration"), stating that China would resume the exercise of sovereignty over Hong Kong and the United Kingdom would restore Hong Kong to China with effect from July 1, 1997, is signed in Beijing by [Deng Xiaoping](https://wikipedia.org/wiki/Deng_Xiaoping "Deng Xiaoping") and [Margaret Thatcher](https://wikipedia.org/wiki/Margaret_Thatcher "Margaret Thatcher").
+ [Disappearance of Jonelle Matthews](https://wikipedia.org/wiki/Disappearance_and_death_of_Jonelle_Matthews "Disappearance and death of Jonelle Matthews") from [Greeley, Colorado](https://wikipedia.org/wiki/Greeley,_Colorado "Greeley, Colorado"). Her remains were discovered on July 23, 2019, located about 24 km (15 mi) southeast of Jonelle's home. The cause of death "was a gunshot wound to the head."
 
-## Year - 1983
- The original [FIFA World Cup](https://wikipedia.org/wiki/FIFA_World_Cup "FIFA World Cup") trophy, the [Jules Rimet Trophy](https://wikipedia.org/wiki/FIFA_World_Cup_Trophy#Jules_Rimet_Trophy "FIFA World Cup Trophy"), is stolen from the headquarters of the [Brazilian Football Confederation](https://wikipedia.org/wiki/Brazilian_Football_Confederation "Brazilian Football Confederation") in [Rio de Janeiro](https://wikipedia.org/wiki/Rio_de_Janeiro "Rio de Janeiro"), Brazil.
-
-## Year - 1981
- Sixteen lives are lost when the [Penlee lifeboat](https://wikipedia.org/wiki/Penlee_lifeboat_disaster "Penlee lifeboat disaster") goes to the aid of the stricken coaster Union Star in heavy seas.
+## Year - 1984
+ The [Summit Tunnel fire](https://wikipedia.org/wiki/Summit_Tunnel_fire "Summit Tunnel fire"), one of the largest transportation tunnel fires in history, burns after a [freight train](https://wikipedia.org/wiki/Freight_rail_transport "Freight rail transport") carrying over one million liters of [gasoline](https://wikipedia.org/wiki/Gasoline "Gasoline") derails near the town of [Todmorden](https://wikipedia.org/wiki/Todmorden "Todmorden"), England, in the [Pennines](https://wikipedia.org/wiki/Pennines "Pennines").
 
 ## Year - 1977
- The M<sub>s</sub>  5.8 [Bob-Tangol earthquake](https://wikipedia.org/wiki/1977_Bob%E2%80%93Tangol_earthquake "1977 Bob-Tangol earthquake") strikes Kerman Province in Iran, destroying villages and killing 665 people.
+ With the approval of the [State Council](https://wikipedia.org/wiki/State_Council_of_the_People%E2%80%99s_Republic_of_China "State Council of the People’s Republic of China"), [China](https://wikipedia.org/wiki/China "China")’s two largest newspapers, the <i>[People’s Daily](https://wikipedia.org/wiki/People%E2%80%99s_Daily "People’s Daily")</i> and the <i>[Guangming Daily](https://wikipedia.org/wiki/Guangming_Daily "Guangming Daily")</i>, publish in full for the first time the [Second Chinese Character Simplification Scheme](https://wikipedia.org/wiki/Second_round_of_simplified_Chinese_characters "Second round of simplified Chinese characters").
 
-## Year - 1974
- [Nelson Rockefeller](https://wikipedia.org/wiki/Nelson_Rockefeller "Nelson Rockefeller") is sworn in as [Vice President of the United States](https://wikipedia.org/wiki/Vice_President_of_the_United_States "Vice President of the United States") under President [Gerald Ford](https://wikipedia.org/wiki/Gerald_Ford "Gerald Ford") under the provisions of the [Twenty-fifth Amendment to the United States Constitution](https://wikipedia.org/wiki/Twenty-fifth_Amendment_to_the_United_States_Constitution "Twenty-fifth Amendment to the United States Constitution").
+## Year - 1973
+ [Assassination of Luis Carrero Blanco](https://wikipedia.org/wiki/Assassination_of_Luis_Carrero_Blanco "Assassination of Luis Carrero Blanco"): A [car bomb](https://wikipedia.org/wiki/Car_bomb "Car bomb") planted by [ETA](https://wikipedia.org/wiki/ETA_(separatist_group) "ETA (separatist group)") in [Madrid](https://wikipedia.org/wiki/Madrid "Madrid") kills three people, including the [Prime Minister of Spain](https://wikipedia.org/wiki/Prime_Minister_of_Spain "Prime Minister of Spain"), Admiral [Luis Carrero Blanco](https://wikipedia.org/wiki/Luis_Carrero_Blanco "Luis Carrero Blanco").
 
-## Year - 1972
- [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program"): The last crewed lunar flight, [Apollo 17](https://wikipedia.org/wiki/Apollo_17 "Apollo 17"), carrying [Eugene Cernan](https://wikipedia.org/wiki/Eugene_Cernan "Eugene Cernan"), [Ronald Evans](https://wikipedia.org/wiki/Ronald_Evans_(astronaut) "Ronald Evans (astronaut)"), and [Harrison Schmitt](https://wikipedia.org/wiki/Harrison_Schmitt "Harrison Schmitt"), returns to [Earth](https://wikipedia.org/wiki/Earth "Earth").
+## Year - 1970
+ [Koza riot](https://wikipedia.org/wiki/Koza_riot "Koza riot"): After a series of hit-and-runs and other vehicular incidents involving [American](https://wikipedia.org/wiki/United_States "United States") service personnel, roughly 5,000 [Okinawans](https://wikipedia.org/wiki/Ryukyuan_people "Ryukyuan people") take to the streets, clashing with American law enforcement in protest against the [U.S. occupation of Okinawa](https://wikipedia.org/wiki/United_States_Civil_Administration_of_the_Ryukyu_Islands "United States Civil Administration of the Ryukyu Islands").
+
+## Year - 1968
+ The [Zodiac Killer](https://wikipedia.org/wiki/Zodiac_Killer "Zodiac Killer") murders his first two officially confirmed victims, David Arthur Faraday and Betty Lou Jensen, on Lake Herman Road in [Benicia, California](https://wikipedia.org/wiki/Benicia,_California "Benicia, California"), United States.
 
 ## Year - 1967
- [Harold Holt](https://wikipedia.org/wiki/Harold_Holt "Harold Holt"), the [Prime Minister of Australia](https://wikipedia.org/wiki/Prime_Minister_of_Australia "Prime Minister of Australia"), is [officially presumed dead](https://wikipedia.org/wiki/Declared_death_in_absentia "Declared death in absentia").
+ A [Pennsylvania Railroad](https://wikipedia.org/wiki/Pennsylvania_Railroad "Pennsylvania Railroad") [Budd Metroliner](https://wikipedia.org/wiki/Budd_Metroliner "Budd Metroliner") exceeds 249 kilometres per hour (155 mph) on their New York Division, also present-day [Amtrak](https://wikipedia.org/wiki/Amtrak "Amtrak")'s Northeast Corridor.
 
-## Year - 1961
- India [annexes](https://wikipedia.org/wiki/Annexation_of_Goa "Annexation of Goa") [Daman and Diu](https://wikipedia.org/wiki/Daman_and_Diu "Daman and Diu"), part of [Portuguese India](https://wikipedia.org/wiki/Portuguese_India "Portuguese India").
+## Year - 1960
+ [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): The [National Liberation Front of South Vietnam](https://wikipedia.org/wiki/Viet_Cong "Viet Cong"), popularly known as the Viet Cong, is formally established in Tân Lập village, present day [Tây Ninh province](https://wikipedia.org/wiki/T%C3%A2y_Ninh "Tây Ninh").
 
-## Year - 1956
- Irish-born physician [John Bodkin Adams](https://wikipedia.org/wiki/John_Bodkin_Adams "John Bodkin Adams") is arrested in connection with the suspicious deaths of more than 160 patients. Eventually he is convicted only of minor charges.
+## Year - 1957
+ The initial production version of the [Boeing 707](https://wikipedia.org/wiki/Boeing_707 "Boeing 707") makes its first flight.
+
+## Year - 1955
+ [Cardiff](https://wikipedia.org/wiki/Cardiff "Cardiff") is proclaimed the capital city of [Wales](https://wikipedia.org/wiki/Wales "Wales"), United Kingdom.
+
+## Year - 1952
+ A [United States Air Force](https://wikipedia.org/wiki/United_States_Air_Force "United States Air Force") [C-124](https://wikipedia.org/wiki/Douglas_C-124_Globemaster_II "Douglas C-124 Globemaster II") [crashes](https://wikipedia.org/wiki/1952_Moses_Lake_C-124_crash "1952 Moses Lake C-124 crash") and burns in [Moses Lake, Washington](https://wikipedia.org/wiki/Moses_Lake,_Washington "Moses Lake, Washington"), killing 87 of the 115 people on board.
+
+## Year - 1951
+ The [EBR-1](https://wikipedia.org/wiki/Experimental_Breeder_Reactor_I "Experimental Breeder Reactor I") in [Arco, Idaho](https://wikipedia.org/wiki/Arco,_Idaho "Arco, Idaho") becomes the first [nuclear power plant](https://wikipedia.org/wiki/Nuclear_power "Nuclear power") to generate electricity. The electricity powered four light bulbs.
+
+## Year - 1948
+ [Indonesian National Revolution](https://wikipedia.org/wiki/Indonesian_National_Revolution "Indonesian National Revolution"): The Dutch military [captures Yogyakarta](https://wikipedia.org/wiki/Operation_Kraai "Operation Kraai"), the temporary capital of the newly formed Republic of Indonesia.
 
 ## Year - 1946
- Start of the [First Indochina War](https://wikipedia.org/wiki/First_Indochina_War "First Indochina War").
+ [An earthquake in Nankaidō, Japan](https://wikipedia.org/wiki/1946_Nankai_earthquake "1946 Nankai earthquake") causes a tsunami which kills at least one thousand people and destroys 36,000 homes.
 
-## Year - 1945
- [John Amery](https://wikipedia.org/wiki/John_Amery "John Amery"), British [Fascist](https://wikipedia.org/wiki/Fascism "Fascism"), is executed at the age of 33 by the British Government for treason.
+## Year - 1946
+ <i>[It's a Wonderful Life](https://wikipedia.org/wiki/It%27s_a_Wonderful_Life "It's a Wonderful Life")</i> premieres at the [Globe Theatre](https://wikipedia.org/wiki/Globe_Theatre_(Broadway,_New_York_City) "Globe Theatre (Broadway, New York City)") in [New York](https://wikipedia.org/wiki/New_York_City "New York City") to mixed reviews. <a rel="nofollow" class="external text" href="https://wikipedia.orghttps://web.archive.org/web/20130119035038/http://www.eeweems.com/capra/_wonderful_life.html">[1]</a>
 
-## Year - 1941
- Twenty-eight men die when [German submarine <i>U-574</i>](https://wikipedia.org/wiki/German_submarine_U-574 "German submarine U-574"), is struck by [HMS <i>Stork</i> (L81)](https://wikipedia.org/wiki/HMS_Stork_(L81) "HMS Stork (L81)"), commanded by Captain [Frederic John Walker](https://wikipedia.org/wiki/Frederic_John_Walker "Frederic John Walker") of [Royal Navy](https://wikipedia.org/wiki/Royal_Navy "Royal Navy"), off [Punta Delgada](https://wikipedia.org/wiki/Ponta_Delgada_(Azores) "Ponta Delgada (Azores)"), as also by [depth charges](https://wikipedia.org/wiki/Depth_charge "Depth charge").
-
-## Year - 1941
- World War II: [Limpet mines](https://wikipedia.org/wiki/Limpet_mine "Limpet mine") placed by [Italian](https://wikipedia.org/wiki/Italian_Navy "Italian Navy") divers heavily damage [HMS <i>Valiant</i>](https://wikipedia.org/wiki/HMS_Valiant_(1914) "HMS Valiant (1914)") and [HMS <i>Queen Elizabeth</i>](https://wikipedia.org/wiki/HMS_Queen_Elizabeth_(1913) "HMS Queen Elizabeth (1913)") in [Alexandria harbour](https://wikipedia.org/wiki/Raid_on_Alexandria_(1941) "Raid on Alexandria (1941)").
+## Year - 1942
+ World War II: [Japanese air forces](https://wikipedia.org/wiki/Imperial_Japanese_Army_Air_Service "Imperial Japanese Army Air Service") bomb [Calcutta](https://wikipedia.org/wiki/Kolkata "Kolkata"), [India](https://wikipedia.org/wiki/British_Raj "British Raj").
 
 ## Year - 1941
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") appoints himself as head of the <i>[Oberkommando des Heeres](https://wikipedia.org/wiki/Oberkommando_des_Heeres "Oberkommando des Heeres")</i>.
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): First battle of the [American Volunteer Group](https://wikipedia.org/wiki/American_Volunteer_Group "American Volunteer Group"), better known as the "[Flying Tigers](https://wikipedia.org/wiki/Flying_Tigers "Flying Tigers")", in [Kunming](https://wikipedia.org/wiki/Kunming "Kunming"), China.
 
 ## Year - 1940
- [Risto Ryti](https://wikipedia.org/wiki/Risto_Ryti "Risto Ryti"), the [Prime Minister of Finland](https://wikipedia.org/wiki/Prime_Minister_of_Finland "Prime Minister of Finland"), is elected [President of the Republic of Finland](https://wikipedia.org/wiki/President_of_the_Republic_of_Finland "President of the Republic of Finland") in a [presidential election](https://wikipedia.org/wiki/1940_Finnish_presidential_election "1940 Finnish presidential election"), which is exceptionally held by the [1937 electoral college](https://wikipedia.org/wiki/1937_Finnish_presidential_election "1937 Finnish presidential election").
-
-## Year - 1932
- [BBC World Service](https://wikipedia.org/wiki/BBC_World_Service "BBC World Service") begins broadcasting as the BBC Empire Service.
-
-## Year - 1929
- The [Indian National Congress](https://wikipedia.org/wiki/Indian_National_Congress "Indian National Congress") promulgates the [Purna Swaraj](https://wikipedia.org/wiki/Purna_Swaraj "Purna Swaraj") (the Declaration of the Independence of India).
-
-## Year - 1927
- Three Indian revolutionaries, [Ram Prasad Bismil](https://wikipedia.org/wiki/Ram_Prasad_Bismil "Ram Prasad Bismil"), [Roshan Singh](https://wikipedia.org/wiki/Roshan_Singh "Roshan Singh") and [Ashfaqulla Khan](https://wikipedia.org/wiki/Ashfaqulla_Khan "Ashfaqulla Khan"), are executed by the [British Raj](https://wikipedia.org/wiki/British_Raj "British Raj") for participation in the [Kakori conspiracy](https://wikipedia.org/wiki/Kakori_conspiracy "Kakori conspiracy").
+ <i>[Captain America Comics](https://wikipedia.org/wiki/Captain_America_Comics "Captain America Comics")</i> #1, containing the first appearance of the superhero [Captain America](https://wikipedia.org/wiki/Captain_America "Captain America"), is published.
 
 ## Year - 1924
- German serial killer [Fritz Haarmann](https://wikipedia.org/wiki/Fritz_Haarmann "Fritz Haarmann") is sentenced to death for a series of murders.
+ [Adolf Hitler](https://wikipedia.org/wiki/Adolf_Hitler "Adolf Hitler") is released from [Landsberg Prison](https://wikipedia.org/wiki/Landsberg_Prison "Landsberg Prison").
 
-## Year - 1924
- The last [Rolls-Royce Silver Ghost](https://wikipedia.org/wiki/Rolls-Royce_Silver_Ghost "Rolls-Royce Silver Ghost") is sold in London, England.
+## Year - 1917
+ [Cheka](https://wikipedia.org/wiki/Cheka "Cheka"), the first [Soviet](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") secret police force, is founded.
 
-## Year - 1920
- [King Constantine I](https://wikipedia.org/wiki/Constantine_I_of_Greece "Constantine I of Greece") is restored as [King of the Hellenes](https://wikipedia.org/wiki/Kingdom_of_Greece_(Gl%C3%BCcksburg) "Kingdom of Greece (Glücksburg)") after the death of his son [Alexander of Greece](https://wikipedia.org/wiki/Alexander_of_Greece "Alexander of Greece") and a [plebiscite](https://wikipedia.org/wiki/Referendum "Referendum").
+## Year - 1915
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): The last Australian troops are evacuated from [Gallipoli](https://wikipedia.org/wiki/Gallipoli_Campaign "Gallipoli Campaign").
 
-## Year - 1912
- William Van Schaick, captain of the [steamship](https://wikipedia.org/wiki/Steamboat "Steamboat") [<i>General Slocum</i>](https://wikipedia.org/wiki/PS_General_Slocum "PS General Slocum") which caught fire and killed over one thousand people, is pardoned by U.S. President [William Howard Taft](https://wikipedia.org/wiki/William_Howard_Taft "William Howard Taft") after <style data-mw-deduplicate="TemplateStyles:r1154941027">.mw-parser-output .frac{white-space:nowrap}.mw-parser-output .frac .num,.mw-parser-output .frac .den{font-size:80%;line-height:0;vertical-align:super}.mw-parser-output .frac .den{vertical-align:sub}.mw-parser-output .sr-only{border:0;clip:rect(0,0,0,0);clip-path:polygon(0px 0px,0px 0px,0px 0px);height:1px;margin:-1px;overflow:hidden;padding:0;position:absolute;width:1px}</style>
-<span class="frac">3<span class="sr-only">+</span><span class="num">1</span>⁄<span class="den">2</span></span> years in [Sing Sing](https://wikipedia.org/wiki/Sing_Sing "Sing Sing") prison.
+## Year - 1860
+ [South Carolina](https://wikipedia.org/wiki/South_Carolina "South Carolina") becomes the first state to attempt to [secede](https://wikipedia.org/wiki/Secession "Secession") from the United States with the [South Carolina Declaration of Secession](https://wikipedia.org/wiki/South_Carolina_Declaration_of_Secession "South Carolina Declaration of Secession").
 
-## Year - 1907
- Two hundred thirty-nine coal miners die in the [Darr Mine Disaster](https://wikipedia.org/wiki/Darr_Mine_disaster "Darr Mine disaster") in [Jacobs Creek, Pennsylvania](https://wikipedia.org/wiki/Jacobs_Creek_(Pennsylvania) "Jacobs Creek (Pennsylvania)").
+## Year - 1848
+ [French presidential election](https://wikipedia.org/wiki/1848_French_presidential_election "1848 French presidential election"): Having won the popular vote in a landslide, [Louis Napoleon Bonaparte](https://wikipedia.org/wiki/Napoleon_III "Napoleon III") is inaugurated in the chamber of the [National Assembly](https://wikipedia.org/wiki/Palais_Bourbon "Palais Bourbon") as the first (and only) president of the [French Second Republic](https://wikipedia.org/wiki/French_Second_Republic "French Second Republic").
 
-## Year - 1900
- French parliament votes amnesty for all involved in scandalous army treason trial known as [Dreyfus affair](https://wikipedia.org/wiki/Dreyfus_affair "Dreyfus affair").
+## Year - 1832
+ [HMS <i>Clio</i>](https://wikipedia.org/wiki/HMS_Clio_(1807) "HMS Clio (1807)") under the command of Captain Onslow arrives at [Port Egmont](https://wikipedia.org/wiki/Port_Egmont "Port Egmont") under orders to [take possession](https://wikipedia.org/wiki/Reassertion_of_British_sovereignty_over_the_Falkland_Islands_(1833) "Reassertion of British sovereignty over the Falkland Islands (1833)") of the [Falkland Islands](https://wikipedia.org/wiki/Falkland_Islands "Falkland Islands").
 
-## Year - 1900
- [Hopetoun Blunder](https://wikipedia.org/wiki/Hopetoun_Blunder "Hopetoun Blunder"): The first [Governor-General of Australia](https://wikipedia.org/wiki/Governor-General_of_Australia "Governor-General of Australia") [John Hope, 7th Earl of Hopetoun](https://wikipedia.org/wiki/John_Hope,_7th_Earl_of_Hopetoun "John Hope, 7th Earl of Hopetoun"), appoints Sir [William Lyne](https://wikipedia.org/wiki/William_Lyne "William Lyne") premier of the new state of [New South Wales](https://wikipedia.org/wiki/New_South_Wales "New South Wales"), but he is unable to persuade other colonial politicians to join his government and is forced to resign.
+## Year - 1808
+ [Peninsular War](https://wikipedia.org/wiki/Peninsular_War "Peninsular War"): The [Siege of Zaragoza](https://wikipedia.org/wiki/Second_Siege_of_Zaragoza "Second Siege of Zaragoza") begins.
 
-## Year - 1828
- [Vice President of the United States](https://wikipedia.org/wiki/Vice_President_of_the_United_States "Vice President of the United States") [John C. Calhoun](https://wikipedia.org/wiki/John_C._Calhoun "John C. Calhoun") sparks the [Nullification Crisis](https://wikipedia.org/wiki/Nullification_Crisis "Nullification Crisis") when he anonymously publishes the <i>[South Carolina Exposition and Protest](https://wikipedia.org/wiki/South_Carolina_Exposition_and_Protest "South Carolina Exposition and Protest")</i>, protesting the [Tariff of 1828](https://wikipedia.org/wiki/Tariff_of_1828 "Tariff of 1828").
+## Year - 1803
+ The [Louisiana Purchase](https://wikipedia.org/wiki/Louisiana_Purchase "Louisiana Purchase") is completed at a ceremony in [New Orleans](https://wikipedia.org/wiki/New_Orleans "New Orleans").
 
-## Year - 1796
- [French Revolutionary Wars](https://wikipedia.org/wiki/French_Revolutionary_Wars "French Revolutionary Wars"): Two British frigates under Commodore [Horatio Nelson](https://wikipedia.org/wiki/Horatio_Nelson,_1st_Viscount_Nelson "Horatio Nelson, 1st Viscount Nelson") and two Spanish frigates under Commodore Don Jacobo Stuart [engage in battle](https://wikipedia.org/wiki/Action_of_19_December_1796 "Action of 19 December 1796") off the coast of [Murcia](https://wikipedia.org/wiki/Murcia "Murcia").
+## Year - 1334
+ [Cardinal](https://wikipedia.org/wiki/Cardinal_(Catholic_Church) "Cardinal (Catholic Church)") Jacques Fournier, a [Cistercian](https://wikipedia.org/wiki/Cistercians "Cistercians") monk, is elected [Pope Benedict XII](https://wikipedia.org/wiki/Pope_Benedict_XII "Pope Benedict XII").
 
-## Year - 1793
- [War of the First Coalition](https://wikipedia.org/wiki/War_of_the_First_Coalition "War of the First Coalition"): The [Siege of Toulon](https://wikipedia.org/wiki/Siege_of_Toulon "Siege of Toulon") ends when [Napoleon](https://wikipedia.org/wiki/Napoleon "Napoleon")'s French artillery forces the British to abandon the city, securing southern France from invasion.
+## Year - 1192
+ [Richard I of England](https://wikipedia.org/wiki/Richard_I_of_England "Richard I of England") is captured and imprisoned by [Leopold V](https://wikipedia.org/wiki/Leopold_V,_Duke_of_Austria "Leopold V, Duke of Austria") of Austria on his way home to England after the [Third Crusade](https://wikipedia.org/wiki/Third_Crusade "Third Crusade").
 
-## Year - 1783
- [William Pitt the Younger](https://wikipedia.org/wiki/William_Pitt_the_Younger "William Pitt the Younger") becomes the youngest [Prime Minister of the United Kingdom](https://wikipedia.org/wiki/Prime_Minister_of_the_United_Kingdom "Prime Minister of the United Kingdom") at 24.
-
-## Year - 1777
- [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington")'s [Continental Army](https://wikipedia.org/wiki/Continental_Army "Continental Army") goes into winter quarters at [Valley Forge, Pennsylvania](https://wikipedia.org/wiki/Valley_Forge "Valley Forge").
-
-## Year - 1776
- [Thomas Paine](https://wikipedia.org/wiki/Thomas_Paine "Thomas Paine") publishes one of a series of pamphlets in <i>[The Pennsylvania Journal](https://wikipedia.org/wiki/The_Pennsylvania_Journal "The Pennsylvania Journal")</i> entitled "[The American Crisis](https://wikipedia.org/wiki/The_American_Crisis "The American Crisis")".
-
-## Year - 1675
- The [Great Swamp Fight](https://wikipedia.org/wiki/Great_Swamp_Fight "Great Swamp Fight"), a pivotal battle in [King Philip's War](https://wikipedia.org/wiki/King_Philip%27s_War "King Philip's War"), gives the English settlers a bitterly won victory.
-
-## Year - 1606
- The ships [<i>Susan Constant</i>](https://wikipedia.org/wiki/Susan_Constant "Susan Constant"), [<i>Godspeed</i>](https://wikipedia.org/wiki/Godspeed_(ship) "Godspeed (ship)"), and [<i>Discovery</i>](https://wikipedia.org/wiki/Discovery_(1602_ship) "Discovery (1602 ship)") depart England carrying settlers who founded, at [Jamestown, Virginia](https://wikipedia.org/wiki/Jamestown,_Virginia "Jamestown, Virginia"), the first of the [thirteen colonies](https://wikipedia.org/wiki/Thirteen_Colonies "Thirteen Colonies") that became the United States.
-
-## Year - 1562
- The [Battle of Dreux](https://wikipedia.org/wiki/Battle_of_Dreux "Battle of Dreux") takes place during the [French Wars of Religion](https://wikipedia.org/wiki/French_Wars_of_Religion "French Wars of Religion").
-
-## Year - 1490
- [Anne, Duchess of Brittany](https://wikipedia.org/wiki/Anne_of_Brittany "Anne of Brittany"), is married to [Maximilian I, Holy Roman Emperor](https://wikipedia.org/wiki/Maximilian_I,_Holy_Roman_Emperor "Maximilian I, Holy Roman Emperor") by [proxy](https://wikipedia.org/wiki/Proxy_marriage "Proxy marriage").
-
-## Year - 1187
- [Pope Clement III](https://wikipedia.org/wiki/Pope_Clement_III "Pope Clement III") is elected.
-
-## Year - 1154
- [Henry II of England](https://wikipedia.org/wiki/Henry_II_of_England "Henry II of England") is crowned at [Westminster Abbey](https://wikipedia.org/wiki/Westminster_Abbey "Westminster Abbey").
+## Year - 69
+D 69 - [Antonius Primus](https://wikipedia.org/wiki/Antonius_Primus "Antonius Primus") enters [Rome](https://wikipedia.org/wiki/Rome "Rome") to claim the title of [Emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") for [Nero](https://wikipedia.org/wiki/Nero "Nero")'s former general [Vespasian](https://wikipedia.org/wiki/Vespasian "Vespasian").
 
 <br />
 
-> _Last Updated: 12/19/2025, 2:47:54 PM (in GMT)_
+> _Last Updated: 12/20/2025, 3:36:21 AM (in GMT)_
