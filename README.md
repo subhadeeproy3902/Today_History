@@ -144,4 +144,4 @@ The [Arian](https://wikipedia.org/wiki/Arianism "Arianism") [Vandal Kingdom](htt
 
 <br />
 
-> _Last Updated: 12/23/2025, 3:47:22 AM (in GMT)_
+> _Last Updated: 12/23/2025, 2:47:26 PM (in GMT)_
