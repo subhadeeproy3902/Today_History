@@ -1,171 +1,207 @@
 
 # Today's History 📜
 
-24th December 2025
+25th December 2025
 
+
+## Year - 2024
+ [Azerbaijan Airlines Flight 8243](https://wikipedia.org/wiki/Azerbaijan_Airlines_Flight_8243 "Azerbaijan Airlines Flight 8243") crashes in [Aktau](https://wikipedia.org/wiki/Aktau "Aktau"), [Kazakhstan](https://wikipedia.org/wiki/Kazakhstan "Kazakhstan"), killing 38 of its occupants.
 
 ## Year - 2021
- [Burmese military forces](https://wikipedia.org/wiki/Tatmadaw "Tatmadaw") commit the [Mo So massacre](https://wikipedia.org/wiki/Mo_So_massacre "Mo So massacre"), killing at least 44 civilians.
+ The [James Webb Space Telescope](https://wikipedia.org/wiki/James_Webb_Space_Telescope "James Webb Space Telescope") is [launched](https://wikipedia.org/wiki/Ariane_flight_VA256 "Ariane flight VA256").
 
-## Year - 2018
- [A helicopter crash](https://wikipedia.org/wiki/2018_Puebla_helicopter_crash "2018 Puebla helicopter crash") kills [Martha Érika Alonso](https://wikipedia.org/wiki/Martha_%C3%89rika_Alonso "Martha Érika Alonso"), first female [Governor of Puebla](https://wikipedia.org/wiki/Governor_of_Puebla "Governor of Puebla"), Mexico, and her husband [Rafael Moreno Valle Rosas](https://wikipedia.org/wiki/Rafael_Moreno_Valle_Rosas "Rafael Moreno Valle Rosas"), former governor.
+## Year - 2020
+ An [explosion in Nashville, Tennessee](https://wikipedia.org/wiki/2020_Nashville_bombing "2020 Nashville bombing"), occurs, leaving three civilians in the hospital.
 
-## Year - 2008
- The [Lord's Resistance Army](https://wikipedia.org/wiki/Lord%27s_Resistance_Army "Lord's Resistance Army"), a [Ugandan](https://wikipedia.org/wiki/Uganda "Uganda") rebel group, begins a [series of attacks](https://wikipedia.org/wiki/2008_Christmas_massacres "2008 Christmas massacres") against civilians in the [Democratic Republic of the Congo](https://wikipedia.org/wiki/Democratic_Republic_of_the_Congo "Democratic Republic of the Congo"), massacring more than 400.
+## Year - 2019
+ Twenty people are killed and thousands are left homeless by [Typhoon Phanfone](https://wikipedia.org/wiki/Typhoon_Phanfone_(2019) "Typhoon Phanfone (2019)") in the [Philippines](https://wikipedia.org/wiki/Philippines "Philippines").
 
-## Year - 2005
- [Chad-Sudan relations](https://wikipedia.org/wiki/Chad%E2%80%93Sudan_relations "Chad-Sudan relations"): [Chad](https://wikipedia.org/wiki/Chad "Chad") declares a [state of belligerence](https://wikipedia.org/wiki/Declaration_of_war "Declaration of war") against [Sudan](https://wikipedia.org/wiki/Sudan "Sudan") following a [December 18](https://wikipedia.org/wiki/December_18 "December 18") [attack on Adré](https://wikipedia.org/wiki/Battle_of_Adr%C3%A9 "Battle of Adré"), which left about 100 people dead.
+## Year - 2016
+ A [Russian Defence Ministry](https://wikipedia.org/wiki/Ministry_of_Defence_(Russia) "Ministry of Defence (Russia)") [Tupolev Tu-154](https://wikipedia.org/wiki/Tupolev_Tu-154 "Tupolev Tu-154") carrying members of the [Alexandrov Ensemble](https://wikipedia.org/wiki/Alexandrov_Ensemble "Alexandrov Ensemble") [crashes](https://wikipedia.org/wiki/2016_Russian_Defence_Ministry_Tupolev_Tu-154_crash "2016 Russian Defence Ministry Tupolev Tu-154 crash") into the [Black Sea](https://wikipedia.org/wiki/Black_Sea "Black Sea") shortly after takeoff, killing all 92 people on board.
+
+## Year - 2012
+ [Air Bagan Flight 011](https://wikipedia.org/wiki/Air_Bagan_Flight_011 "Air Bagan Flight 011"), a [Fokker 100](https://wikipedia.org/wiki/Fokker_100 "Fokker 100"), crashes on approach to [Heho Airport](https://wikipedia.org/wiki/Heho_Airport "Heho Airport") in [Heho](https://wikipedia.org/wiki/Heho "Heho"), [Myanmar](https://wikipedia.org/wiki/Myanmar "Myanmar"), killing two people.
+
+## Year - 2012
+ An [Antonov An-72](https://wikipedia.org/wiki/Antonov_An-72 "Antonov An-72") plane [crashes](https://wikipedia.org/wiki/2012_Kazakhstan_Antonov_An-72_crash "2012 Kazakhstan Antonov An-72 crash") close to the city of [Shymkent](https://wikipedia.org/wiki/Shymkent "Shymkent"), killing 27 people.
+
+## Year - 2007
+ A [Siberian tiger](https://wikipedia.org/wiki/Siberian_tiger "Siberian tiger") named [Tatania](https://wikipedia.org/wiki/San_Francisco_Zoo_tiger_attacks "San Francisco Zoo tiger attacks") escapes her exhibit at the [San Francisco Zoo](https://wikipedia.org/wiki/San_Francisco_Zoo "San Francisco Zoo") and attacks three people, killing one and injuring two more.
+
+## Year - 2004
+ The [<i>Cassini</i> orbiter](https://wikipedia.org/wiki/Cassini_Orbiter "Cassini Orbiter") releases [<i>Huygens</i> probe](https://wikipedia.org/wiki/Huygens_(spacecraft) "Huygens (spacecraft)") which successfully landed on [Saturn](https://wikipedia.org/wiki/Saturn "Saturn")'s moon [Titan](https://wikipedia.org/wiki/Titan_(moon) "Titan (moon)") on January 14, 2005.
 
 ## Year - 2003
- The Spanish police thwart an attempt by [ETA](https://wikipedia.org/wiki/ETA_(separatist_group) "ETA (separatist group)") to detonate 50 kg of [explosives](https://wikipedia.org/wiki/Explosive "Explosive") at 3:55 p.m. inside [Madrid](https://wikipedia.org/wiki/Madrid "Madrid")'s busy [Chamartín Station](https://wikipedia.org/wiki/Madrid_Chamart%C3%ADn_railway_station "Madrid Chamartín railway station").
+ The ill-fated <i>[Beagle 2](https://wikipedia.org/wiki/Beagle_2 "Beagle 2")</i> probe, released from the [Mars Express](https://wikipedia.org/wiki/Mars_Express "Mars Express") spacecraft on [December 19](https://wikipedia.org/wiki/December_19 "December 19"), stops transmitting shortly before its scheduled landing.
+
+## Year - 2003
+ [UTA Flight 141](https://wikipedia.org/wiki/UTA_Flight_141 "UTA Flight 141"), a [Boeing 727-223](https://wikipedia.org/wiki/Boeing_727 "Boeing 727"), crashes at the [Cotonou Airport](https://wikipedia.org/wiki/Cotonou_Airport "Cotonou Airport") in [Benin](https://wikipedia.org/wiki/Benin "Benin"), killing 141 people.
 
 ## Year - 1999
- [Indian Airlines Flight 814](https://wikipedia.org/wiki/Indian_Airlines_Flight_814 "Indian Airlines Flight 814") is hijacked in Indian airspace between [Kathmandu](https://wikipedia.org/wiki/Kathmandu "Kathmandu"), [Nepal](https://wikipedia.org/wiki/Nepal "Nepal"), and [Delhi](https://wikipedia.org/wiki/Delhi "Delhi"), India. The aircraft landed at [Kandahar](https://wikipedia.org/wiki/Kandahar "Kandahar") in [Afghanistan](https://wikipedia.org/wiki/Afghanistan "Afghanistan"). The incident ended on [December 31](https://wikipedia.org/wiki/December_31 "December 31") with the release of 190 survivors (one passenger is killed).
-
-## Year - 1997
- The [Sid El-Antri massacre](https://wikipedia.org/wiki/Sid_El-Antri_massacre "Sid El-Antri massacre") in [Algeria](https://wikipedia.org/wiki/Algeria "Algeria") kills between 50 and 100 people.
+ [Cubana de Aviación Flight 310](https://wikipedia.org/wiki/Cubana_de_Aviaci%C3%B3n_Flight_310 "Cubana de Aviación Flight 310"), a [Yakovlev Yak-42](https://wikipedia.org/wiki/Yakovlev_Yak-42 "Yakovlev Yak-42"), crashes near [Bejuma](https://wikipedia.org/wiki/Bejuma "Bejuma"), [Carabobo State](https://wikipedia.org/wiki/Carabobo_State "Carabobo State"), Venezuela, killing 22 people.
 
 ## Year - 1996
- A [Learjet 35](https://wikipedia.org/wiki/Learjet_35 "Learjet 35") [crashes](https://wikipedia.org/wiki/1996_New_Hampshire_Learjet_crash "1996 New Hampshire Learjet crash") into [Smarts Mountain](https://wikipedia.org/wiki/Smarts_Mountain "Smarts Mountain") near [Dorchester, New Hampshire](https://wikipedia.org/wiki/Dorchester,_New_Hampshire "Dorchester, New Hampshire"), killing both pilots on board.
+ The body of American child beauty queen [JonBenét Ramsey was found](https://wikipedia.org/wiki/Killing_of_JonBen%C3%A9t_Ramsey "Killing of JonBenét Ramsey") in her family's [Boulder, Colorado](https://wikipedia.org/wiki/Boulder,_Colorado "Boulder, Colorado"), home. Her murder remains unsolved.
 
-## Year - 1994
- [Air France Flight 8969](https://wikipedia.org/wiki/Air_France_Flight_8969 "Air France Flight 8969") is hijacked on the ground at [Houari Boumediene Airport](https://wikipedia.org/wiki/Houari_Boumediene_Airport "Houari Boumediene Airport"), [Algiers](https://wikipedia.org/wiki/Algiers "Algiers"), Algeria. Over the course of three days three passengers are killed, as are all four terrorists.
+## Year - 1991
+ [Mikhail Gorbachev](https://wikipedia.org/wiki/Mikhail_Gorbachev "Mikhail Gorbachev") resigns as [President of the Soviet Union](https://wikipedia.org/wiki/President_of_the_Soviet_Union "President of the Soviet Union") (the union itself is [dissolved](https://wikipedia.org/wiki/Dissolution_of_the_Soviet_Union "Dissolution of the Soviet Union") the next day). Ukraine's [referendum](https://wikipedia.org/wiki/1991_Ukrainian_independence_referendum "1991 Ukrainian independence referendum") is finalized and Ukraine officially leaves the Soviet Union.
 
-## Year - 1983
- [Aeroflot Flight 601](https://wikipedia.org/wiki/Aeroflot_Flight_601 "Aeroflot Flight 601") crashes during takeoff from [Leshukonskoye Airport](https://wikipedia.org/wiki/Leshukonskoye_Airport "Leshukonskoye Airport"), Russia, killing 44 of the 49 people on board.
+## Year - 1989
+ [Romanian Revolution](https://wikipedia.org/wiki/Romanian_Revolution "Romanian Revolution"): Deposed [President of Romania](https://wikipedia.org/wiki/President_of_Romania "President of Romania") [Nicolae Ceaușescu](https://wikipedia.org/wiki/Nicolae_Ceau%C8%99escu "Nicolae Ceaușescu") and his wife, [Elena](https://wikipedia.org/wiki/Elena_Ceau%C8%99escu "Elena Ceaușescu"), are condemned to death and executed after a [summary trial](https://wikipedia.org/wiki/Trial_of_Nicolae_and_Elena_Ceau%C8%99escu "Trial of Nicolae and Elena Ceaușescu").
 
-## Year - 1974
- [Cyclone Tracy](https://wikipedia.org/wiki/Cyclone_Tracy "Cyclone Tracy") devastates [Darwin](https://wikipedia.org/wiki/Darwin,_Northern_Territory "Darwin, Northern Territory"), Australia.
+## Year - 1986
+ [Iraqi Airways Flight 163](https://wikipedia.org/wiki/Iraqi_Airways_Flight_163 "Iraqi Airways Flight 163"), a [Boeing 737-270C](https://wikipedia.org/wiki/Boeing_737 "Boeing 737"), is hijacked and crashes in [Arar, Saudi Arabia](https://wikipedia.org/wiki/Arar,_Saudi_Arabia "Arar, Saudi Arabia"), killing 63 people.
 
-## Year - 1973
- [District of Columbia Home Rule Act](https://wikipedia.org/wiki/District_of_Columbia_Home_Rule_Act "District of Columbia Home Rule Act") is passed, allowing residents of Washington, D.C. to elect their own [local government](https://wikipedia.org/wiki/Local_government "Local government").
+## Year - 1977
+ Israeli Prime Minister [Menachem Begin](https://wikipedia.org/wiki/Menachem_Begin "Menachem Begin") meets in Egypt with its president [Anwar Sadat](https://wikipedia.org/wiki/Anwar_Sadat "Anwar Sadat").
 
-## Year - 1971
- [LANSA Flight 508](https://wikipedia.org/wiki/LANSA_Flight_508 "LANSA Flight 508") is struck by lightning and crashes in the [Puerto Inca District](https://wikipedia.org/wiki/Puerto_Inca_District "Puerto Inca District") in the [Department of Huánuco](https://wikipedia.org/wiki/Department_of_Hu%C3%A1nuco "Department of Huánuco") in [Peru](https://wikipedia.org/wiki/Peru "Peru"), killing 91.
-
-## Year - 1969
- Nigerian troops capture [Umuahia](https://wikipedia.org/wiki/Umuahia "Umuahia"), the [Biafran](https://wikipedia.org/wiki/Biafra "Biafra") capital.
+## Year - 1976
+ [EgyptAir Flight 864](https://wikipedia.org/wiki/EgyptAir_Flight_864 "EgyptAir Flight 864"), a [Boeing 707-366C](https://wikipedia.org/wiki/Boeing_707 "Boeing 707"), crashes on approach to [Don Mueang International Airport](https://wikipedia.org/wiki/Don_Mueang_International_Airport "Don Mueang International Airport"), killing 71 people.
 
 ## Year - 1968
- [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program"): The crew of [Apollo 8](https://wikipedia.org/wiki/Apollo_8 "Apollo 8") enters into orbit around the [Moon](https://wikipedia.org/wiki/Moon "Moon"), becoming the first humans to do so. They performed ten [lunar orbits](https://wikipedia.org/wiki/Lunar_orbit "Lunar orbit"), took the <i>[Earthrise](https://wikipedia.org/wiki/Earthrise "Earthrise")</i> photograph, broadcast live TV pictures, and [read the first ten verses of Genesis](https://wikipedia.org/wiki/Apollo_8_Genesis_reading "Apollo 8 Genesis reading").
+ [Kilvenmani massacre](https://wikipedia.org/wiki/Kilvenmani_massacre "Kilvenmani massacre"): Forty-four [Dalits](https://wikipedia.org/wiki/Dalit "Dalit") (untouchables) are burnt to death in [Kizhavenmani](https://wikipedia.org/wiki/Kizhavenmani "Kizhavenmani") village, Tamil Nadu, a retaliation for a campaign for higher wages by Dalit laborers.
 
-## Year - 1966
- A [Canadair CL-44](https://wikipedia.org/wiki/Canadair_CL-44 "Canadair CL-44") chartered by the [United States military](https://wikipedia.org/wiki/United_States_Armed_Forces "United States Armed Forces") [crashes](https://wikipedia.org/wiki/1966_Flying_Tiger_Line_Canadair_CL-44_crash "1966 Flying Tiger Line Canadair CL-44 crash") into a small village in [South Vietnam](https://wikipedia.org/wiki/South_Vietnam "South Vietnam"), killing 111.
+## Year - 1968
+ [Apollo program](https://wikipedia.org/wiki/Apollo_program "Apollo program"): <i>[Apollo 8](https://wikipedia.org/wiki/Apollo_8 "Apollo 8")</i> performs the first successful [Trans-Earth injection](https://wikipedia.org/wiki/Trans-Earth_injection "Trans-Earth injection") (TEI) maneuver, sending the crew and spacecraft on a trajectory back to [Earth](https://wikipedia.org/wiki/Earth "Earth") from [Lunar orbit](https://wikipedia.org/wiki/Lunar_orbit "Lunar orbit").
 
-## Year - 1964
- [Flying Tiger Line Flight 282](https://wikipedia.org/wiki/Flying_Tiger_Line_Flight_282 "Flying Tiger Line Flight 282") crashes after takeoff from [San Francisco International Airport](https://wikipedia.org/wiki/San_Francisco_International_Airport "San Francisco International Airport"), killing three.
+## Year - 1963
+ Turkish Cypriot [Bayrak](https://wikipedia.org/wiki/Bayrak "Bayrak") Radio begins transmitting in [Cyprus](https://wikipedia.org/wiki/Cyprus "Cyprus") after [Turkish Cypriots](https://wikipedia.org/wiki/Turkish_Cypriots "Turkish Cypriots") are forcibly excluded from [Cyprus Broadcasting Corporation](https://wikipedia.org/wiki/Cyprus_Broadcasting_Corporation "Cyprus Broadcasting Corporation").
 
-## Year - 1964
- [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): [Viet Cong](https://wikipedia.org/wiki/Viet_Cong "Viet Cong") operatives [bomb the Brinks Hotel](https://wikipedia.org/wiki/1964_Brinks_Hotel_bombing "1964 Brinks Hotel bombing") in [Saigon](https://wikipedia.org/wiki/Ho_Chi_Minh_City "Ho Chi Minh City"), [South Vietnam](https://wikipedia.org/wiki/South_Vietnam "South Vietnam") to demonstrate they can strike an American installation in the heavily guarded capital.
-
-## Year - 1955
- [A flood](https://wikipedia.org/wiki/1955_Yuba%E2%80%93Sutter_floods "1955 Yuba-Sutter floods") devastates California, killing 74 people across portions of the state.
-
-## Year - 1953
- [Tangiwai disaster](https://wikipedia.org/wiki/Tangiwai_disaster "Tangiwai disaster"): In [New Zealand](https://wikipedia.org/wiki/New_Zealand "New Zealand")'s [North Island](https://wikipedia.org/wiki/North_Island "North Island"), at [Tangiwai](https://wikipedia.org/wiki/Tangiwai "Tangiwai"), a railway bridge is damaged by a [lahar](https://wikipedia.org/wiki/Lahar "Lahar") and collapses beneath a passenger train, killing 151 people.
-
-## Year - 1952
- First flight of Britain's [Handley Page Victor](https://wikipedia.org/wiki/Handley_Page_Victor "Handley Page Victor") [strategic bomber](https://wikipedia.org/wiki/Strategic_bomber "Strategic bomber").
+## Year - 1962
+ The [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") conducts its final above-ground [nuclear weapon test](https://wikipedia.org/wiki/1962_Soviet_nuclear_tests "1962 Soviet nuclear tests"), in anticipation of the 1963 [Partial Nuclear Test Ban Treaty](https://wikipedia.org/wiki/Partial_Nuclear_Test_Ban_Treaty "Partial Nuclear Test Ban Treaty").
 
 ## Year - 1951
- [Libya](https://wikipedia.org/wiki/Libya "Libya") becomes independent. [Idris I](https://wikipedia.org/wiki/Idris_of_Libya "Idris of Libya") is proclaimed King of Libya.
+ A bomb [explodes](https://wikipedia.org/wiki/Murder_of_Harry_and_Harriette_Moore "Murder of Harry and Harriette Moore") at the home of [Harry T. Moore](https://wikipedia.org/wiki/Harry_T._Moore "Harry T. Moore") and [Harriette V. S. Moore](https://wikipedia.org/wiki/Harriette_Moore "Harriette Moore"), early leaders of the [Civil Rights Movement](https://wikipedia.org/wiki/Civil_Rights_Movement "Civil Rights Movement"), killing Harry instantly and fatally wounding Harriette.
 
-## Year - 1945
- Five of nine children [become missing](https://wikipedia.org/wiki/Sodder_children_disappearance "Sodder children disappearance") after their home in [Fayetteville, West Virginia](https://wikipedia.org/wiki/Fayetteville,_West_Virginia "Fayetteville, West Virginia"), is burned down.
+## Year - 1950
+ The [Stone of Scone](https://wikipedia.org/wiki/Stone_of_Scone "Stone of Scone"), traditional coronation stone of [British monarchs](https://wikipedia.org/wiki/British_Monarch "British Monarch"), [is taken from Westminster Abbey](https://wikipedia.org/wiki/Removal_of_the_Stone_of_Scone_in_1950 "Removal of the Stone of Scone in 1950") by [Scottish nationalist](https://wikipedia.org/wiki/Scottish_nationalism "Scottish nationalism") students. It later turns up in Scotland on [April 11](https://wikipedia.org/wiki/April_11 "April 11"), 1951.
 
-## Year - 1944
- World War II: The Belgian Troopship [Leopoldville](https://wikipedia.org/wiki/SS_L%C3%A9opoldville_(1928) "SS Léopoldville (1928)") was torpedoed and sank with the loss of 763 soldiers and 56 crew.
-
-## Year - 1943
- World War II: U.S. General [Dwight D. Eisenhower](https://wikipedia.org/wiki/Dwight_D._Eisenhower "Dwight D. Eisenhower") is named [Supreme Allied Commander](https://wikipedia.org/wiki/Supreme_Allied_Commander "Supreme Allied Commander") for [Operation Overlord](https://wikipedia.org/wiki/Operation_Overlord "Operation Overlord").
-
-## Year - 1942
- World War II: [French monarchist](https://wikipedia.org/wiki/Monarchism_in_France "Monarchism in France"), [Fernand Bonnier de La Chapelle](https://wikipedia.org/wiki/Fernand_Bonnier_de_La_Chapelle "Fernand Bonnier de La Chapelle"), assassinates [Vichy](https://wikipedia.org/wiki/Vichy_France "Vichy France") French Admiral [François Darlan](https://wikipedia.org/wiki/Fran%C3%A7ois_Darlan "François Darlan") in [Algiers](https://wikipedia.org/wiki/Algiers "Algiers"), [Algeria](https://wikipedia.org/wiki/Algeria "Algeria").
+## Year - 1946
+ The first European self-sustaining [nuclear chain reaction](https://wikipedia.org/wiki/Nuclear_chain_reaction "Nuclear chain reaction") is initiated within the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union")'s [F-1 nuclear reactor](https://wikipedia.org/wiki/F-1_(nuclear_reactor) "F-1 (nuclear reactor)").
 
 ## Year - 1941
- World War II: [Benghazi](https://wikipedia.org/wiki/Benghazi "Benghazi") is conquered by the [British Eighth Army](https://wikipedia.org/wiki/Eighth_Army_(United_Kingdom) "Eighth Army (United Kingdom)").
+ Admiral [Émile Muselier](https://wikipedia.org/wiki/%C3%89mile_Muselier "Émile Muselier") seizes the archipelago of [Saint Pierre and Miquelon](https://wikipedia.org/wiki/Saint_Pierre_and_Miquelon "Saint Pierre and Miquelon"), which become the first part of France to be liberated by the [Free French Forces](https://wikipedia.org/wiki/Free_French_Forces "Free French Forces").
 
 ## Year - 1941
- World War II: [Kuching](https://wikipedia.org/wiki/Kuching "Kuching") is conquered by Japanese forces.
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Battle of Hong Kong](https://wikipedia.org/wiki/Battle_of_Hong_Kong "Battle of Hong Kong") ends, beginning the [Japanese occupation of Hong Kong](https://wikipedia.org/wiki/Japanese_occupation_of_Hong_Kong "Japanese occupation of Hong Kong").
 
-## Year - 1939
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Pope Pius XII](https://wikipedia.org/wiki/Pope_Pius_XII "Pope Pius XII") makes a [Christmas Eve](https://wikipedia.org/wiki/Christmas_Eve "Christmas Eve") appeal for peace.
+## Year - 1941
+ Admiral [Chester W. Nimitz](https://wikipedia.org/wiki/Chester_W._Nimitz "Chester W. Nimitz"), appointed commander of the [U.S. Pacific Fleet](https://wikipedia.org/wiki/United_States_Pacific_Fleet "United States Pacific Fleet") on December 17, arrives at Pearl Harbor.
 
-## Year - 1929
- A four alarm fire breaks out in the [West Wing](https://wikipedia.org/wiki/West_Wing "West Wing") of the [White House](https://wikipedia.org/wiki/White_House "White House") in Washington, D.C.
+## Year - 1932
+ A [magnitude 7.6 earthquake in Gansu, China](https://wikipedia.org/wiki/1932_Changma_earthquake "1932 Changma earthquake") kills 275 people.
 
-## Year - 1929
- Assassination attempt on [Argentine](https://wikipedia.org/wiki/Argentina "Argentina") President [Hipólito Yrigoyen](https://wikipedia.org/wiki/Hip%C3%B3lito_Yrigoyen "Hipólito Yrigoyen").
+## Year - 1927
+ [B. R. Ambedkar](https://wikipedia.org/wiki/Dr._Bhimrao_Ramji_Ambedkar "Dr. Bhimrao Ramji Ambedkar") and his followers burn copies of the [Manusmriti](https://wikipedia.org/wiki/Manusmriti "Manusmriti") in [Mahad](https://wikipedia.org/wiki/Mahad "Mahad"), [Maharashtra](https://wikipedia.org/wiki/Maharashtra "Maharashtra"), to protest its treatment of [Dalit](https://wikipedia.org/wiki/Dalit "Dalit") people.
 
-## Year - 1924
- [Albania](https://wikipedia.org/wiki/Albania "Albania") becomes a republic.
-
-## Year - 1920
- [Gabriele D'Annunzio](https://wikipedia.org/wiki/Gabriele_D%27Annunzio "Gabriele D'Annunzio") surrendered the [Italian Regency of Carnaro](https://wikipedia.org/wiki/Italian_Regency_of_Carnaro "Italian Regency of Carnaro") in the city of [Fiume](https://wikipedia.org/wiki/Fiume "Fiume") to [Italian Armed Forces](https://wikipedia.org/wiki/Italian_Armed_Forces "Italian Armed Forces").
-
-## Year - 1918
- Region of [Međimurje is captured](https://wikipedia.org/wiki/1918_occupation_of_Me%C4%91imurje "1918 occupation of Međimurje") by the [Kingdom of Serbs, Croats and Slovenes](https://wikipedia.org/wiki/Kingdom_of_Yugoslavia "Kingdom of Yugoslavia") from [Hungary](https://wikipedia.org/wiki/Kingdom_of_Hungary "Kingdom of Hungary").
+## Year - 1915
+ The [National Protection War](https://wikipedia.org/wiki/National_Protection_War "National Protection War") breaks out against the [Empire of China](https://wikipedia.org/wiki/Empire_of_China_(1915%E2%80%931916) "Empire of China (1915-1916)"), as military leaders [Cai E](https://wikipedia.org/wiki/Cai_E "Cai E") and [Tang Jiyao](https://wikipedia.org/wiki/Tang_Jiyao "Tang Jiyao") proclaim the independence of [Yunnan](https://wikipedia.org/wiki/Yunnan "Yunnan") and begin a campaign to restore the [Republic](https://wikipedia.org/wiki/Republic_of_China_(1912%E2%80%931949) "Republic of China (1912-1949)").
 
 ## Year - 1914
- [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): The "[Christmas truce](https://wikipedia.org/wiki/Christmas_truce "Christmas truce")" begins.
+ [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): A [series of unofficial truces](https://wikipedia.org/wiki/Christmas_truce "Christmas truce") occur across the [Western Front](https://wikipedia.org/wiki/Western_Front_(World_War_I) "Western Front (World War I)") to celebrate [Christmas](https://wikipedia.org/wiki/Christmas "Christmas").
 
-## Year - 1913
- The [Italian Hall disaster](https://wikipedia.org/wiki/Italian_Hall_disaster "Italian Hall disaster") in [Calumet, Michigan](https://wikipedia.org/wiki/Calumet,_Michigan "Calumet, Michigan") results in the deaths of 73 striking workers families at a [Christmas](https://wikipedia.org/wiki/Christmas "Christmas") party participants (including 59 children) when someone falsely yells "fire".
-
-## Year - 1906
- [Reginald Fessenden](https://wikipedia.org/wiki/Reginald_Fessenden "Reginald Fessenden") transmits the first [radio](https://wikipedia.org/wiki/Radio "Radio") broadcast; consisting of a poetry reading, a [violin](https://wikipedia.org/wiki/Violin "Violin") solo, and a speech.
-
-## Year - 1871
- The opera <i>[Aida](https://wikipedia.org/wiki/Aida "Aida")</i> premieres in [Cairo](https://wikipedia.org/wiki/Cairo "Cairo"), [Egypt](https://wikipedia.org/wiki/Egypt "Egypt").
+## Year - 1870
+ [Wagner](https://wikipedia.org/wiki/Wagner "Wagner")'s <i>[Siegfried Idyll](https://wikipedia.org/wiki/Siegfried_Idyll "Siegfried Idyll")</i> is first performed.
 
 ## Year - 1868
- The Greek [Presidential Guard](https://wikipedia.org/wiki/Presidential_Guard_(Greece) "Presidential Guard (Greece)") is established as the royal escort by [King George I](https://wikipedia.org/wiki/George_I_of_Greece "George I of Greece").
+ [Pardons for ex-Confederates](https://wikipedia.org/wiki/Pardons_for_ex-Confederates "Pardons for ex-Confederates"): United States President [Andrew Johnson](https://wikipedia.org/wiki/Andrew_Johnson "Andrew Johnson") grants an unconditional [pardon](https://wikipedia.org/wiki/Pardon "Pardon") to all [Confederate](https://wikipedia.org/wiki/Confederate_States_Army "Confederate States Army") veterans.
 
-## Year - 1865
- Former Confederate officers Frank McCord, Richard Reed, John Lester, John Kennedy, J. Calvin Jones, and James Crowe form the [Ku Klux Klan](https://wikipedia.org/wiki/Ku_Klux_Klan "Ku Klux Klan").
+## Year - 1837
+ [Second Seminole War](https://wikipedia.org/wiki/Second_Seminole_War "Second Seminole War"): American general [Zachary Taylor](https://wikipedia.org/wiki/Zachary_Taylor "Zachary Taylor") leads 1,100 troops against the [Seminoles](https://wikipedia.org/wiki/Seminole "Seminole") at the [Battle of Lake Okeechobee](https://wikipedia.org/wiki/Battle_of_Lake_Okeechobee "Battle of Lake Okeechobee").
 
-## Year - 1846
- British acquired [Labuan](https://wikipedia.org/wiki/Crown_Colony_of_Labuan "Crown Colony of Labuan") from the [Sultanate of Brunei](https://wikipedia.org/wiki/Sultanate_of_Brunei "Sultanate of Brunei") for [Great Britain](https://wikipedia.org/wiki/United_Kingdom_of_Great_Britain_and_Ireland "United Kingdom of Great Britain and Ireland").
+## Year - 1831
+ The [Great Jamaican Slave Revolt](https://wikipedia.org/wiki/Baptist_War "Baptist War") begins; up to 20% of [Jamaica](https://wikipedia.org/wiki/Jamaica "Jamaica")'s slaves mobilize in an ultimately unsuccessful fight for freedom.
 
 ## Year - 1826
- The [Eggnog Riot](https://wikipedia.org/wiki/Eggnog_Riot "Eggnog Riot") at the [United States Military Academy](https://wikipedia.org/wiki/United_States_Military_Academy "United States Military Academy") begins that night, wrapping up the following morning.
+ The [Eggnog Riot](https://wikipedia.org/wiki/Eggnog_Riot "Eggnog Riot") at the [United States Military Academy](https://wikipedia.org/wiki/United_States_Military_Academy "United States Military Academy") concludes after beginning the previous evening.
 
-## Year - 1818
- The first performance of "[Silent Night](https://wikipedia.org/wiki/Silent_Night "Silent Night")" takes place in the [Nikolauskirche](https://wikipedia.org/wiki/Nikolauskirche,_Oberndorf "Nikolauskirche, Oberndorf") in [Oberndorf](https://wikipedia.org/wiki/Oberndorf_bei_Salzburg "Oberndorf bei Salzburg"), [Austria](https://wikipedia.org/wiki/Austrian_Empire "Austrian Empire").
+## Year - 1815
+ The [Handel and Haydn Society](https://wikipedia.org/wiki/Handel_and_Haydn_Society "Handel and Haydn Society"), oldest continually performing arts organization in the United States, gives its first performance.
 
 ## Year - 1814
- Representatives of the [United Kingdom](https://wikipedia.org/wiki/United_Kingdom "United Kingdom") and the [United States](https://wikipedia.org/wiki/United_States "United States") sign the [Treaty of Ghent](https://wikipedia.org/wiki/Treaty_of_Ghent "Treaty of Ghent"), ending the [War of 1812](https://wikipedia.org/wiki/War_of_1812 "War of 1812").
+ Rev. [Samuel Marsden](https://wikipedia.org/wiki/Samuel_Marsden "Samuel Marsden") holds the first Christian service on land in New Zealand at [Rangihoua Bay](https://wikipedia.org/wiki/Rangihoua_Bay "Rangihoua Bay").
 
-## Year - 1800
- The [Plot of the rue Saint-Nicaise](https://wikipedia.org/wiki/Plot_of_the_rue_Saint-Nicaise "Plot of the rue Saint-Nicaise") fails to kill [Napoleon Bonaparte](https://wikipedia.org/wiki/Napoleon "Napoleon").
+## Year - 1809
+ Dr. [Ephraim McDowell](https://wikipedia.org/wiki/Ephraim_McDowell "Ephraim McDowell") performs the first [ovariotomy](https://wikipedia.org/wiki/Ovariotomy "Ovariotomy"), removing a 22-pound [tumor](https://wikipedia.org/wiki/Neoplasm "Neoplasm").
 
-## Year - 1777
- [Kiritimati](https://wikipedia.org/wiki/Kiritimati "Kiritimati"), also called Christmas Island, is discovered by [James Cook](https://wikipedia.org/wiki/James_Cook "James Cook").
+## Year - 1793
+ [Northwest Indian War](https://wikipedia.org/wiki/Northwest_Indian_War "Northwest Indian War"): General ["Mad Anthony" Wayne](https://wikipedia.org/wiki/Anthony_Wayne "Anthony Wayne") and a [300 man detachment](https://wikipedia.org/wiki/Legion_of_the_United_States "Legion of the United States") identify the site of [St. Clair's 1791 defeat](https://wikipedia.org/wiki/St._Clair%27s_defeat "St. Clair's defeat") by the large number of unburied human remains at modern [Fort Recovery, Ohio](https://wikipedia.org/wiki/Fort_Recovery,_Ohio "Fort Recovery, Ohio").
 
-## Year - 1737
- The [Marathas](https://wikipedia.org/wiki/Maratha_Confederacy "Maratha Confederacy") defeat the combined forces of the [Mughal Empire](https://wikipedia.org/wiki/Mughal_Empire "Mughal Empire"), [Rajputs of Jaipur](https://wikipedia.org/wiki/Jaipur_State "Jaipur State"), [Nizam of Hyderabad](https://wikipedia.org/wiki/Nizam_of_Hyderabad "Nizam of Hyderabad"), [Nawab of Awadh](https://wikipedia.org/wiki/Nawab_of_Awadh "Nawab of Awadh") and [Nawab of Bengal](https://wikipedia.org/wiki/Nawabs_of_Bengal_and_Murshidabad "Nawabs of Bengal and Murshidabad") in the [Battle of Bhopal](https://wikipedia.org/wiki/Battle_of_Bhopal "Battle of Bhopal").
+## Year - 1776
+ [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): General [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington") and the [Continental Army](https://wikipedia.org/wiki/Continental_Army "Continental Army") [cross the Delaware River](https://wikipedia.org/wiki/George_Washington%27s_crossing_of_the_Delaware_River "George Washington's crossing of the Delaware River") at night to [attack](https://wikipedia.org/wiki/Battle_of_Trenton "Battle of Trenton") [Hessian](https://wikipedia.org/wiki/Hessian_(soldier) "Hessian (soldier)") forces serving [Great Britain](https://wikipedia.org/wiki/Kingdom_of_Great_Britain "Kingdom of Great Britain") at [Trenton, New Jersey](https://wikipedia.org/wiki/Trenton,_New_Jersey "Trenton, New Jersey"), the next day.
 
-## Year - 1500
- A joint [Venetian](https://wikipedia.org/wiki/Republic_of_Venice "Republic of Venice")-[Spanish](https://wikipedia.org/wiki/Spain "Spain") fleet [captures](https://wikipedia.org/wiki/Siege_of_the_Castle_of_St._George "Siege of the Castle of St. George") the Castle of St. George on the island of [Cephalonia](https://wikipedia.org/wiki/Cephalonia "Cephalonia").
+## Year - 1766
+ [Mapuches](https://wikipedia.org/wiki/Mapuche "Mapuche") in [Chile](https://wikipedia.org/wiki/Colonial_Chile "Colonial Chile") launch a series of surprise attacks against the Spanish starting the [Mapuche uprising of 1766](https://wikipedia.org/wiki/Mapuche_uprising_of_1766 "Mapuche uprising of 1766").
 
-## Year - 1294
- [Pope Boniface VIII](https://wikipedia.org/wiki/Pope_Boniface_VIII "Pope Boniface VIII") is elected, replacing [St. Celestine V](https://wikipedia.org/wiki/Pope_Celestine_V "Pope Celestine V"), who had [resigned](https://wikipedia.org/wiki/Papal_resignation "Papal resignation").
+## Year - 1758
+ [Halley's Comet](https://wikipedia.org/wiki/Halley%27s_Comet "Halley's Comet") is sighted by [Johann Georg Palitzsch](https://wikipedia.org/wiki/Johann_Georg_Palitzsch "Johann Georg Palitzsch"), confirming [Edmund Halley](https://wikipedia.org/wiki/Edmund_Halley "Edmund Halley")'s prediction of its passage. This was the first passage of a comet predicted ahead of time.
 
-## Year - 1144
- The capital of the [crusader](https://wikipedia.org/wiki/Crusades "Crusades") [County of Edessa](https://wikipedia.org/wiki/County_of_Edessa "County of Edessa") [falls](https://wikipedia.org/wiki/Siege_of_Edessa_(1144) "Siege of Edessa (1144)") to [Imad ad-Din Zengi](https://wikipedia.org/wiki/Imad_ad-Din_Zengi "Imad ad-Din Zengi"), the [atabeg](https://wikipedia.org/wiki/Atabeg "Atabeg") of [Mosul](https://wikipedia.org/wiki/Mosul "Mosul") and [Aleppo](https://wikipedia.org/wiki/Aleppo "Aleppo").
+## Year - 1724
+ [J. S. Bach](https://wikipedia.org/wiki/Johann_Sebastian_Bach "Johann Sebastian Bach") leads the first performance of [<i>Gelobet seist du, Jesu Christ</i>, BWV 91](https://wikipedia.org/wiki/Gelobet_seist_du,_Jesu_Christ,_BWV_91 "Gelobet seist du, Jesu Christ, BWV 91"), in [Leipzig](https://wikipedia.org/wiki/Leipzig "Leipzig"), based on Luther's 1524 [Christmas hymn](https://wikipedia.org/wiki/Gelobet_seist_du,_Jesu_Christ "Gelobet seist du, Jesu Christ").
 
-## Year - 971
-[Battle of Ayn Shams](https://wikipedia.org/wiki/Battle_of_Ayn_Shams_(971) "Battle of Ayn Shams (971)"): The [Fatimids](https://wikipedia.org/wiki/Fatimid_Caliphate "Fatimid Caliphate") under [Jawhar](https://wikipedia.org/wiki/Jawhar_(general) "Jawhar (general)") defeat the [Qarmatians](https://wikipedia.org/wiki/Qarmatians "Qarmatians") at the gates of [Cairo](https://wikipedia.org/wiki/Cairo "Cairo"), putting an end to the [First Qarmatian invasion of Egypt](https://wikipedia.org/wiki/First_Qarmatian_invasion_of_Egypt "First Qarmatian invasion of Egypt").
+## Year - 1559
+ [Pope Pius IV](https://wikipedia.org/wiki/Pope_Pius_IV "Pope Pius IV") is [elected](https://wikipedia.org/wiki/1559_papal_conclave "1559 papal conclave"), four months after his predecessor's death.
 
-## Year - 759
-[Tang dynasty](https://wikipedia.org/wiki/Tang_dynasty "Tang dynasty") poet [Du Fu](https://wikipedia.org/wiki/Du_Fu "Du Fu") [departs for Chengdu](https://wikipedia.org/wiki/Du_Fu#Chengdu "Du Fu"), where he is hosted by fellow poet [Pei Di](https://wikipedia.org/wiki/Pei_Di "Pei Di").
+## Year - 1553
+ [Battle of Tucapel](https://wikipedia.org/wiki/Battle_of_Tucapel "Battle of Tucapel"): [Mapuche](https://wikipedia.org/wiki/Mapuche "Mapuche") rebels under [Lautaro](https://wikipedia.org/wiki/Lautaro "Lautaro") defeat the Spanish [conquistadors](https://wikipedia.org/wiki/Conquistador "Conquistador") and executes the governor of [Chile](https://wikipedia.org/wiki/Chile "Chile"), [Pedro de Valdivia](https://wikipedia.org/wiki/Pedro_de_Valdivia "Pedro de Valdivia").
 
-## Year - 640
-[Pope John IV](https://wikipedia.org/wiki/Pope_John_IV "Pope John IV") is elected, several months [after his predecessor's death](https://wikipedia.org/wiki/Sede_vacante "Sede vacante").
+## Year - 1492
+ The [carrack](https://wikipedia.org/wiki/Carrack "Carrack") <i>[Santa María](https://wikipedia.org/wiki/Santa_Mar%C3%ADa_(ship) "Santa María (ship)")</i>, commanded by [Christopher Columbus](https://wikipedia.org/wiki/Christopher_Columbus "Christopher Columbus"), runs onto a [reef](https://wikipedia.org/wiki/Reef "Reef") off [Haiti](https://wikipedia.org/wiki/Haiti "Haiti") due to an improper [watch](https://wikipedia.org/wiki/Watch_system "Watch system").
 
-## Year - 502
-[Chinese emperor](https://wikipedia.org/wiki/Emperor_of_China "Emperor of China") [Xiao Yan](https://wikipedia.org/wiki/Emperor_Wu_of_Liang "Emperor Wu of Liang") names [Xiao Tong](https://wikipedia.org/wiki/Xiao_Tong "Xiao Tong") his heir designate.
+## Year - 1261
+ Eleven-year-old [John IV Laskaris](https://wikipedia.org/wiki/John_IV_Laskaris "John IV Laskaris") of the restored [Eastern Roman Empire](https://wikipedia.org/wiki/Byzantine_Empire "Byzantine Empire") is deposed and blinded by orders of his co-ruler [Michael VIII Palaiologos](https://wikipedia.org/wiki/Michael_VIII_Palaiologos "Michael VIII Palaiologos").
+
+## Year - 1130
+ Count [Roger II of Sicily](https://wikipedia.org/wiki/Roger_II_of_Sicily "Roger II of Sicily") is crowned the first king of [Sicily](https://wikipedia.org/wiki/Kingdom_of_Sicily "Kingdom of Sicily").
+
+## Year - 1100
+ [Baldwin of Boulogne](https://wikipedia.org/wiki/Baldwin_I_of_Jerusalem "Baldwin I of Jerusalem") is crowned the first [King of Jerusalem](https://wikipedia.org/wiki/King_of_Jerusalem "King of Jerusalem") in the [Church of the Nativity](https://wikipedia.org/wiki/Church_of_the_Nativity "Church of the Nativity") in [Bethlehem](https://wikipedia.org/wiki/Bethlehem "Bethlehem").
+
+## Year - 1076
+ Coronation of [Bolesław II the Generous](https://wikipedia.org/wiki/Boles%C5%82aw_II_the_Generous "Bolesław II the Generous") as king of Poland.
+
+## Year - 1066
+ [William the Conqueror](https://wikipedia.org/wiki/William_the_Conqueror "William the Conqueror"), [Duke of Normandy](https://wikipedia.org/wiki/Duke_of_Normandy "Duke of Normandy") is [crowned king of England](https://wikipedia.org/wiki/Coronation_of_William_I "Coronation of William I"), at [Westminster Abbey](https://wikipedia.org/wiki/Westminster_Abbey "Westminster Abbey"), [London](https://wikipedia.org/wiki/London "London").
+
+## Year - 1046
+ [Henry III](https://wikipedia.org/wiki/Henry_III,_Holy_Roman_Emperor "Henry III, Holy Roman Emperor") is crowned [Holy Roman Emperor](https://wikipedia.org/wiki/Holy_Roman_Emperor "Holy Roman Emperor") by [Pope Clement II](https://wikipedia.org/wiki/Pope_Clement_II "Pope Clement II").
+
+## Year - 1025
+ Coronation of [Mieszko II Lambert](https://wikipedia.org/wiki/Mieszko_II_Lambert "Mieszko II Lambert") as king of Poland.
+
+## Year - 1013
+ [Sweyn Forkbeard](https://wikipedia.org/wiki/Sweyn_Forkbeard "Sweyn Forkbeard") takes control of the [Danelaw](https://wikipedia.org/wiki/Danelaw "Danelaw") and is proclaimed king of [England](https://wikipedia.org/wiki/Kingdom_of_England "Kingdom of England").
+
+## Year - 1000
+ The foundation of the [Kingdom of Hungary](https://wikipedia.org/wiki/Kingdom_of_Hungary "Kingdom of Hungary"): Hungary is established as a Christian kingdom by [Stephen I of Hungary](https://wikipedia.org/wiki/Stephen_I_of_Hungary "Stephen I of Hungary").
+
+## Year - 820
+Eastern Emperor [Leo V](https://wikipedia.org/wiki/Leo_V_the_Armenian "Leo V the Armenian") is murdered in a [church](https://wikipedia.org/wiki/Church_of_the_Virgin_of_the_Pharos "Church of the Virgin of the Pharos") of the [Great Palace](https://wikipedia.org/wiki/Great_Palace_of_Constantinople "Great Palace of Constantinople") of [Constantinople](https://wikipedia.org/wiki/Constantinople "Constantinople") by followers of [Michael II](https://wikipedia.org/wiki/Michael_II "Michael II").
+
+## Year - 800
+The coronation of [Charlemagne](https://wikipedia.org/wiki/Charlemagne "Charlemagne") as [Holy Roman Emperor](https://wikipedia.org/wiki/Holy_Roman_Emperor "Holy Roman Emperor"), in Rome.
+
+## Year - 597
+[Augustine of Canterbury](https://wikipedia.org/wiki/Augustine_of_Canterbury "Augustine of Canterbury") and his fellow-labourers baptise in [Kent](https://wikipedia.org/wiki/Kingdom_of_Kent "Kingdom of Kent") more than 10,000 [Anglo-Saxons](https://wikipedia.org/wiki/Anglo-Saxons "Anglo-Saxons").
+
+## Year - 508
+[Clovis I](https://wikipedia.org/wiki/Clovis_I "Clovis I"), king of the [Franks](https://wikipedia.org/wiki/Franks "Franks"), is [baptized](https://wikipedia.org/wiki/Baptism "Baptism") into the [Catholic](https://wikipedia.org/wiki/Catholicism "Catholicism") faith at [Reims](https://wikipedia.org/wiki/Reims "Reims"), by [Saint Remigius](https://wikipedia.org/wiki/Saint_Remigius "Saint Remigius").
+
+## Year - 350
+[Vetranio](https://wikipedia.org/wiki/Vetranio "Vetranio") meets [Constantius II](https://wikipedia.org/wiki/Constantius_II "Constantius II") at [Naissus](https://wikipedia.org/wiki/Ni%C5%A1 "Niš") ([Serbia](https://wikipedia.org/wiki/Serbia "Serbia")) and is forced to abdicate his imperial title. Constantius allows him to live as a private citizen on a state pension.
+
+## Year - 336
+First documentary sign of [Christmas](https://wikipedia.org/wiki/Christmas "Christmas") celebration in Rome.
+
+## Year - 333
+Roman Emperor [Constantine the Great](https://wikipedia.org/wiki/Constantine_the_Great "Constantine the Great") elevates his youngest son [Constans](https://wikipedia.org/wiki/Constans "Constans") to the rank of <i>[Caesar](https://wikipedia.org/wiki/Caesar_(title) "Caesar (title)")</i>.
+
+## Year - 274
+A [temple](https://wikipedia.org/wiki/Temple_of_the_Sun_(Rome) "Temple of the Sun (Rome)") to [Sol Invictus](https://wikipedia.org/wiki/Sol_Invictus "Sol Invictus") is dedicated in [Rome](https://wikipedia.org/wiki/Ancient_Rome "Ancient Rome") by Emperor [Aurelian](https://wikipedia.org/wiki/Aurelian "Aurelian").
+
+## Year - 36
+orces of [Emperor Guangwu](https://wikipedia.org/wiki/Emperor_Guangwu "Emperor Guangwu") of the [Eastern Han](https://wikipedia.org/wiki/Eastern_Han "Eastern Han"), under the command of [Wu Han](https://wikipedia.org/wiki/Wu_Han_(Han_dynasty) "Wu Han (Han dynasty)"), conquer the separatist [Chengjia](https://wikipedia.org/wiki/Chengjia "Chengjia") empire, reuniting China.
 
 <br />
 
-> _Last Updated: 12/24/2025, 2:45:11 PM (in GMT)_
+> _Last Updated: 12/25/2025, 3:47:28 AM (in GMT)_
