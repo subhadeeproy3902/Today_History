@@ -162,4 +162,4 @@ C - 1458 BC - [Hatshepsut](https://wikipedia.org/wiki/Hatshepsut "Hatshepsut") d
 
 <br />
 
-> _Last Updated: 1/16/2026, 3:50:02 AM (in GMT)_
+> _Last Updated: 1/16/2026, 2:50:18 PM (in GMT)_
