@@ -1,132 +1,198 @@
 
 # Today's History 📜
 
-24th January 2026
+25th January 2026
 
 
-## Year - 2018
- Former doctor [Larry Nassar](https://wikipedia.org/wiki/Larry_Nassar "Larry Nassar") is sentenced up to 175 years in prison after being found guilty of using his position to [sexually abuse female gymnasts](https://wikipedia.org/wiki/Larry_Nassar_sex_abuse_scandal "Larry Nassar sex abuse scandal").
+## Year - 2019
+ A mining company's dam [collapses](https://wikipedia.org/wiki/Brumadinho_dam_disaster "Brumadinho dam disaster") in [Brumadinho](https://wikipedia.org/wiki/Brumadinho "Brumadinho"), Brazil, a south-eastern city, killing 270 people.
+
+## Year - 2015
+ A [clash](https://wikipedia.org/wiki/2015_Mamasapano_clash "2015 Mamasapano clash") in [Mamasapano, Maguindanao](https://wikipedia.org/wiki/Mamasapano,_Maguindanao "Mamasapano, Maguindanao") in the Philippines kills 44 members of [Special Action Force](https://wikipedia.org/wiki/Special_Action_Force "Special Action Force") (SAF), at least 18 from the [Moro Islamic Liberation Front](https://wikipedia.org/wiki/Moro_Islamic_Liberation_Front "Moro Islamic Liberation Front") and five from the [Bangsamoro Islamic Freedom Fighters](https://wikipedia.org/wiki/Bangsamoro_Islamic_Freedom_Fighters "Bangsamoro Islamic Freedom Fighters").
+
+## Year - 2013
+ At least 50 people are killed and 120 people are injured in a [prison riot](https://wikipedia.org/wiki/2013_Uribana_prison_riot "2013 Uribana prison riot") in [Barquisimeto](https://wikipedia.org/wiki/Barquisimeto "Barquisimeto"), Venezuela.
 
 ## Year - 2011
- At least 35 are killed and 180 injured in a [bombing](https://wikipedia.org/wiki/Domodedovo_International_Airport_bombing "Domodedovo International Airport bombing") at Moscow's [Domodedovo Airport](https://wikipedia.org/wiki/Domodedovo_Airport "Domodedovo Airport").
+ The [first wave](https://wikipedia.org/wiki/Timeline_of_the_Egyptian_Revolution_of_2011 "Timeline of the Egyptian Revolution of 2011") of the [Egyptian revolution](https://wikipedia.org/wiki/Egyptian_Revolution_of_2011 "Egyptian Revolution of 2011") begins throughout the country, marked by street demonstrations, rallies, acts of civil disobedience, riots, labour strikes, and violent clashes.
 
-## Year - 2009
- [Cyclone Klaus](https://wikipedia.org/wiki/Cyclone_Klaus "Cyclone Klaus") makes landfall near [Bordeaux](https://wikipedia.org/wiki/Bordeaux "Bordeaux"), France, causing 26 deaths as well as extensive disruptions to public transport and power supplies.
+## Year - 2010
+ [Ethiopian Airlines Flight 409](https://wikipedia.org/wiki/Ethiopian_Airlines_Flight_409 "Ethiopian Airlines Flight 409") crashes into the [Mediterranean Sea](https://wikipedia.org/wiki/Mediterranean_Sea "Mediterranean Sea") off the coast of [Na'ameh](https://wikipedia.org/wiki/Haret_en_Naameh "Haret en Naameh"), Lebanon, killing 90.
+
+## Year - 2006
+ Mexican [professional wrestler](https://wikipedia.org/wiki/Lucha_libre "Lucha libre") [Juana Barraza](https://wikipedia.org/wiki/Juana_Barraza "Juana Barraza") is arrested in connection with the [serial killing](https://wikipedia.org/wiki/Serial_killer "Serial killer") of at least ten elderly women.
+
+## Year - 2005
+ A [stampede](https://wikipedia.org/wiki/Mandher_Devi_temple_stampede "Mandher Devi temple stampede") at the [Mandhradevi](https://wikipedia.org/wiki/Mandhradevi "Mandhradevi") temple in [Maharashtra](https://wikipedia.org/wiki/Maharashtra "Maharashtra"), India kills at least 258.
 
 ## Year - 2003
- The [United States Department of Homeland Security](https://wikipedia.org/wiki/United_States_Department_of_Homeland_Security "United States Department of Homeland Security") officially begins operation.
+ [Invasion of Iraq](https://wikipedia.org/wiki/2003_invasion_of_Iraq "2003 invasion of Iraq"): A group of people leave London, England, for [Baghdad](https://wikipedia.org/wiki/Baghdad "Baghdad"), Iraq, to [serve as human shields](https://wikipedia.org/wiki/Human_shield_action_to_Iraq "Human shield action to Iraq"), intending to prevent the U.S.-led [coalition](https://wikipedia.org/wiki/Coalition_of_the_willing "Coalition of the willing") troops from bombing certain locations.
+
+## Year - 1999
+ A 6.0 [magnitude](https://wikipedia.org/wiki/Moment_magnitude "Moment magnitude") [earthquake](https://wikipedia.org/wiki/1999_Armenia,_Colombia_earthquake "1999 Armenia, Colombia earthquake") hits western [Colombia](https://wikipedia.org/wiki/Colombia "Colombia") killing at least 1,000.
+
+## Year - 1998
+ A suicide attack by the [Liberation Tigers of Tamil Eelam](https://wikipedia.org/wiki/Liberation_Tigers_of_Tamil_Eelam "Liberation Tigers of Tamil Eelam") on [Sri Lanka](https://wikipedia.org/wiki/Sri_Lanka "Sri Lanka")'s [Temple of the Tooth](https://wikipedia.org/wiki/Temple_of_the_Tooth "Temple of the Tooth") kills eight and injures 25 others.
+
+## Year - 1998
+ During a historic visit to Cuba, [Pope John Paul II](https://wikipedia.org/wiki/Pope_John_Paul_II "Pope John Paul II") demands political reforms and the release of political prisoners while condemning US attempts to isolate the country.
+
+## Year - 1996
+ [Billy Bailey](https://wikipedia.org/wiki/Billy_Bailey "Billy Bailey") becomes the last person to be hanged in the United States.
+
+## Year - 1995
+ The [Norwegian rocket incident](https://wikipedia.org/wiki/Norwegian_rocket_incident "Norwegian rocket incident"): Russia almost launches a [nuclear](https://wikipedia.org/wiki/Nuclear_weapon "Nuclear weapon") attack after it mistakes [Black Brant XII](https://wikipedia.org/wiki/Black_Brant_XII "Black Brant XII"), a [Norwegian](https://wikipedia.org/wiki/Norway "Norway") [research rocket](https://wikipedia.org/wiki/Research_rocket "Research rocket"), for a US [Trident missile](https://wikipedia.org/wiki/Trident_(missile) "Trident (missile)").
+
+## Year - 1994
+ The spacecraft <i>[Clementine](https://wikipedia.org/wiki/Clementine_(spacecraft) "Clementine (spacecraft)")</i> by [BMDO](https://wikipedia.org/wiki/BMDO "BMDO") and [NASA](https://wikipedia.org/wiki/NASA "NASA") is launched.
+
+## Year - 1993
+ [Five people are shot](https://wikipedia.org/wiki/1993_shootings_at_CIA_Headquarters "1993 shootings at CIA Headquarters") outside the [CIA Headquarters](https://wikipedia.org/wiki/CIA_Headquarters "CIA Headquarters") in [Langley, Virginia](https://wikipedia.org/wiki/Langley,_Virginia "Langley, Virginia"). Two are killed and three wounded.
 
 ## Year - 1990
- Japan launches [Hiten](https://wikipedia.org/wiki/Hiten_(spacecraft) "Hiten (spacecraft)"), the country's first [lunar probe](https://wikipedia.org/wiki/Lunar_probe "Lunar probe"), the first robotic lunar probe since the [Soviet Union](https://wikipedia.org/wiki/Soviet_Union "Soviet Union")'s [Luna 24](https://wikipedia.org/wiki/Luna_24 "Luna 24") in 1976, and the first lunar probe launched by a country other than Soviet Union or the United States.
-
-## Year - 1989
- Notorious serial killer [Ted Bundy](https://wikipedia.org/wiki/Ted_Bundy "Ted Bundy"), with over 30 known victims, is executed in the electric chair at the [Florida State Prison](https://wikipedia.org/wiki/Florida_State_Prison "Florida State Prison").
-
-## Year - 1987
- About 20,000 protestors march in [a civil rights demonstration](https://wikipedia.org/wiki/1987_Forsyth_County_protests "1987 Forsyth County protests") in [Forsyth County, Georgia](https://wikipedia.org/wiki/Forsyth_County,_Georgia "Forsyth County, Georgia"), United States.
+ [Avianca Flight 052](https://wikipedia.org/wiki/Avianca_Flight_052 "Avianca Flight 052") crashes in [Cove Neck, New York](https://wikipedia.org/wiki/Cove_Neck,_New_York "Cove Neck, New York"), killing 73.
 
 ## Year - 1986
- The [Voyager 2](https://wikipedia.org/wiki/Voyager_2 "Voyager 2") space probe makes its closest approach to [Uranus](https://wikipedia.org/wiki/Uranus "Uranus").
+ The [National Resistance Movement](https://wikipedia.org/wiki/National_Resistance_Movement "National Resistance Movement") topples the government of [Tito Okello](https://wikipedia.org/wiki/Tito_Okello "Tito Okello") in [Uganda](https://wikipedia.org/wiki/Uganda "Uganda").
 
-## Year - 1984
- [Apple Computer](https://wikipedia.org/wiki/Apple_Computer "Apple Computer") places the [Macintosh](https://wikipedia.org/wiki/Macintosh_128K "Macintosh 128K") [personal computer](https://wikipedia.org/wiki/Personal_computer "Personal computer") on sale in the United States.
+## Year - 1980
+ [Mother Teresa](https://wikipedia.org/wiki/Mother_Teresa "Mother Teresa") is honored with India's highest civilian award, the [Bharat Ratna](https://wikipedia.org/wiki/Bharat_Ratna "Bharat Ratna").
 
-## Year - 1978
- [Soviet](https://wikipedia.org/wiki/Soviet_Union "Soviet Union") satellite [Kosmos 954](https://wikipedia.org/wiki/Kosmos_954 "Kosmos 954"), with a nuclear reactor on board, burns up in Earth's atmosphere, scattering radioactive debris over Canada's [Northwest Territories](https://wikipedia.org/wiki/Northwest_Territories "Northwest Territories"). Only 1% is recovered.
+## Year - 1979
+ [Pope John Paul II](https://wikipedia.org/wiki/Pope_John_Paul_II "Pope John Paul II") starts his first official [papal visits](https://wikipedia.org/wiki/List_of_pastoral_visits_of_Pope_John_Paul_II "List of pastoral visits of Pope John Paul II") outside Italy to [The Bahamas](https://wikipedia.org/wiki/The_Bahamas "The Bahamas"), [Dominican Republic](https://wikipedia.org/wiki/Dominican_Republic "Dominican Republic"), and [Mexico](https://wikipedia.org/wiki/Mexico "Mexico").
 
-## Year - 1977
- The [Atocha massacre occurs in Madrid](https://wikipedia.org/wiki/1977_Massacre_of_Atocha "1977 Massacre of Atocha") during the Spanish transition to democracy.
+## Year - 1971
+ [Idi Amin](https://wikipedia.org/wiki/Idi_Amin "Idi Amin") leads a [coup](https://wikipedia.org/wiki/1971_Ugandan_coup_d%27%C3%A9tat "1971 Ugandan coup d'état") deposing [Milton Obote](https://wikipedia.org/wiki/Milton_Obote "Milton Obote") and becomes [Uganda](https://wikipedia.org/wiki/Uganda "Uganda")'s president.
 
-## Year - 1972
- Japanese Sgt. [Shoichi Yokoi](https://wikipedia.org/wiki/Shoichi_Yokoi "Shoichi Yokoi") is found hiding in a [Guam](https://wikipedia.org/wiki/Guam "Guam") jungle, where he had been [since the end of World War II](https://wikipedia.org/wiki/Japanese_holdout "Japanese holdout").
+## Year - 1971
+ [Charles Manson](https://wikipedia.org/wiki/Charles_Manson "Charles Manson") and four "[Family](https://wikipedia.org/wiki/Manson_Family "Manson Family")" members (three of them female) are found guilty of the 1969 [Tate-LaBianca murders](https://wikipedia.org/wiki/Tate%E2%80%93LaBianca_murders "Tate-LaBianca murders").
 
-## Year - 1968
- [Vietnam War](https://wikipedia.org/wiki/Vietnam_War "Vietnam War"): The [1st Australian Task Force](https://wikipedia.org/wiki/1st_Australian_Task_Force "1st Australian Task Force") launches [Operation Coburg](https://wikipedia.org/wiki/Operation_Coburg "Operation Coburg") against the [North Vietnamese Army](https://wikipedia.org/wiki/People%27s_Army_of_Vietnam "People's Army of Vietnam") and [Viet Cong](https://wikipedia.org/wiki/Viet_Cong "Viet Cong") during wider fighting around [Long Bình](https://wikipedia.org/wiki/Long_B%C3%ACnh,_%C4%90%E1%BB%93ng_Nai "Long Bình, Đồng Nai") and [Biên Hòa](https://wikipedia.org/wiki/Bi%C3%AAn_H%C3%B2a "Biên Hòa").
+## Year - 1969
+ [Brazilian Army](https://wikipedia.org/wiki/Brazilian_Army "Brazilian Army") captain [Carlos Lamarca](https://wikipedia.org/wiki/Carlos_Lamarca "Carlos Lamarca") deserts in order to fight against the [military dictatorship](https://wikipedia.org/wiki/Brazilian_military_government "Brazilian military government"), taking with him ten machine guns and 63 rifles.
 
-## Year - 1966
- [Air India Flight 101](https://wikipedia.org/wiki/Air_India_Flight_101 "Air India Flight 101") crashes into [Mont Blanc](https://wikipedia.org/wiki/Mont_Blanc "Mont Blanc").
+## Year - 1967
+ [South Vietnamese](https://wikipedia.org/wiki/South_Vietnam "South Vietnam") junta leader and Prime Minister [Nguyen Cao Ky](https://wikipedia.org/wiki/Nguyen_Cao_Ky "Nguyen Cao Ky") fires rival, Deputy Prime Minister and Defence Minister [Nguyen Huu Co](https://wikipedia.org/wiki/Nguyen_Huu_Co "Nguyen Huu Co"), while the latter is overseas on a diplomatic visit.
+
+## Year - 1964
+ [Blue Ribbon Sports](https://wikipedia.org/wiki/Blue_Ribbon_Sports "Blue Ribbon Sports"), which would later become [Nike](https://wikipedia.org/wiki/Nike,_Inc. "Nike, Inc."), is founded by [University of Oregon](https://wikipedia.org/wiki/University_of_Oregon "University of Oregon") track and field athletes.
 
 ## Year - 1961
- [Goldsboro B-52 crash](https://wikipedia.org/wiki/1961_Goldsboro_B-52_crash "1961 Goldsboro B-52 crash"): A bomber carrying two [H-bombs](https://wikipedia.org/wiki/Thermonuclear_weapon "Thermonuclear weapon") breaks up in mid-air over North Carolina. The uranium core of one weapon remains lost.
+ In Washington, D.C., US President [John F. Kennedy](https://wikipedia.org/wiki/John_F._Kennedy "John F. Kennedy") delivers the first live presidential television [news conference](https://wikipedia.org/wiki/News_conference "News conference").
 
 ## Year - 1960
- [Algerian War](https://wikipedia.org/wiki/Algerian_War "Algerian War"): Some units of European volunteers in [Algiers](https://wikipedia.org/wiki/Algiers "Algiers") stage an insurrection known as the "barricades week", during which they seize government buildings and clash with local police.
+ The [National Association of Broadcasters](https://wikipedia.org/wiki/National_Association_of_Broadcasters "National Association of Broadcasters") in the United States reacts to the "[payola](https://wikipedia.org/wiki/Payola "Payola")" scandal by threatening fines for any [disc jockeys](https://wikipedia.org/wiki/Disc_jockey "Disc jockey") who accept money for playing particular records.
+
+## Year - 1949
+ The first [Emmy Awards](https://wikipedia.org/wiki/Emmy_Award "Emmy Award") are presented in the United States; the venue is the [Hollywood Athletic Club](https://wikipedia.org/wiki/Hollywood_Athletic_Club "Hollywood Athletic Club").
+
+## Year - 1947
+ [Thomas Goldsmith Jr.](https://wikipedia.org/wiki/Thomas_T._Goldsmith,_Jr. "Thomas T. Goldsmith, Jr.") files a patent for a "[Cathode Ray Tube](https://wikipedia.org/wiki/Cathode_Ray_Tube "Cathode Ray Tube") Amusement Device", the first ever [electronic game](https://wikipedia.org/wiki/Electronic_game "Electronic game").
 
 ## Year - 1946
- The [United Nations General Assembly](https://wikipedia.org/wiki/United_Nations_General_Assembly "United Nations General Assembly") passes its first resolution to establish the [United Nations Atomic Energy Commission](https://wikipedia.org/wiki/United_Nations_Atomic_Energy_Commission "United Nations Atomic Energy Commission").
+ [United Nations Security Council Resolution 1](https://wikipedia.org/wiki/United_Nations_Security_Council_Resolution_1 "United Nations Security Council Resolution 1") relating to [Military Staff Committee](https://wikipedia.org/wiki/Military_Staff_Committee "Military Staff Committee") is adopted.
 
-## Year - 1943
- World War II: [Franklin D. Roosevelt](https://wikipedia.org/wiki/Franklin_D._Roosevelt "Franklin D. Roosevelt") and [Winston Churchill](https://wikipedia.org/wiki/Winston_Churchill "Winston Churchill") conclude a [conference in Casablanca](https://wikipedia.org/wiki/Casablanca_Conference "Casablanca Conference").
+## Year - 1946
+ The [United Mine Workers](https://wikipedia.org/wiki/United_Mine_Workers "United Mine Workers") rejoins the [American Federation of Labor](https://wikipedia.org/wiki/American_Federation_of_Labor "American Federation of Labor").
+
+## Year - 1945
+ World War II: The [Battle of the Bulge](https://wikipedia.org/wiki/Battle_of_the_Bulge "Battle of the Bulge") ends.
 
 ## Year - 1942
- [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The Allies [bombard Bangkok](https://wikipedia.org/wiki/Bombing_of_Bangkok_in_World_War_II "Bombing of Bangkok in World War II"), leading Thailand, then under Japanese control, to declare war against the United States and United Kingdom.
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): [Thailand declares war](https://wikipedia.org/wiki/Thailand_in_World_War_II "Thailand in World War II") on the United States and United Kingdom.
 
-## Year - 1939
- The [deadliest earthquake in Chilean history](https://wikipedia.org/wiki/1939_Chill%C3%A1n_earthquake "1939 Chillán earthquake") strikes [Chillán](https://wikipedia.org/wiki/Chill%C3%A1n "Chillán"), killing approximately 28,000 people.
+## Year - 1941
+ [Pope Pius XII](https://wikipedia.org/wiki/Pope_Pius_XII "Pope Pius XII") elevates the [Apostolic Vicariate of the Hawaiian Islands](https://wikipedia.org/wiki/Apostolic_Vicariate_of_the_Hawaiian_Islands "Apostolic Vicariate of the Hawaiian Islands") to the dignity of a [diocese](https://wikipedia.org/wiki/Diocese "Diocese"). It becomes the [Roman Catholic Diocese of Honolulu](https://wikipedia.org/wiki/Roman_Catholic_Diocese_of_Honolulu "Roman Catholic Diocese of Honolulu").
 
-## Year - 1935
- [Gottfried Krueger Brewing Company](https://wikipedia.org/wiki/Gottfried_Krueger_Brewing_Company "Gottfried Krueger Brewing Company") starts selling the first canned beer.
+## Year - 1937
+ <i>[The Guiding Light](https://wikipedia.org/wiki/The_Guiding_Light "The Guiding Light")</i> debuts on [NBC](https://wikipedia.org/wiki/NBC "NBC") radio from [Chicago](https://wikipedia.org/wiki/Chicago "Chicago"). In 1952 it moves to [CBS](https://wikipedia.org/wiki/CBS "CBS") television, where it remains until September 18, 2009.
 
-## Year - 1933
- The [20th Amendment to the United States Constitution](https://wikipedia.org/wiki/Twentieth_Amendment_to_the_United_States_Constitution "Twentieth Amendment to the United States Constitution") is ratified, changing the beginning and end of terms for all elected federal offices.
+## Year - 1932
+ [Alt Llobregat insurrection](https://wikipedia.org/wiki/Alt_Llobregat_insurrection "Alt Llobregat insurrection") suppressed in [Central Catalonia](https://wikipedia.org/wiki/Central_Catalonia "Central Catalonia"), [Spain](https://wikipedia.org/wiki/Second_Spanish_Republic "Second Spanish Republic").
+
+## Year - 1932
+ [Second Sino-Japanese War](https://wikipedia.org/wiki/Second_Sino-Japanese_War "Second Sino-Japanese War"): The [Chinese](https://wikipedia.org/wiki/Republic_of_China_(1912%E2%80%9349) "Republic of China (1912-49)") [National Revolutionary Army](https://wikipedia.org/wiki/National_Revolutionary_Army "National Revolutionary Army") begins the [defense of Harbin](https://wikipedia.org/wiki/Defense_of_Harbin "Defense of Harbin").
+
+## Year - 1924
+ The [1924 Winter Olympics](https://wikipedia.org/wiki/1924_Winter_Olympics "1924 Winter Olympics") opens in [Chamonix](https://wikipedia.org/wiki/Chamonix "Chamonix"), in the [French Alps](https://wikipedia.org/wiki/French_Alps "French Alps"), inaugurating the [Winter Olympic Games](https://wikipedia.org/wiki/Winter_Olympic_Games "Winter Olympic Games").
 
 ## Year - 1918
- The [Gregorian calendar](https://wikipedia.org/wiki/Gregorian_calendar "Gregorian calendar") is introduced in Russia by decree of the [Council of People's Commissars](https://wikipedia.org/wiki/Council_of_People%27s_Commissars "Council of People's Commissars") effective [February 14](https://wikipedia.org/wiki/February_14 "February 14") (New Style).
+ The [Finnish Defence Forces](https://wikipedia.org/wiki/Finnish_Defence_Forces "Finnish Defence Forces") (The [White Guards](https://wikipedia.org/wiki/White_Guard_(Finland) "White Guard (Finland)")) are established as the official army of [independent Finland](https://wikipedia.org/wiki/Finland "Finland"), and Baron [C. G. E. Mannerheim](https://wikipedia.org/wiki/Carl_Gustaf_Emil_Mannerheim "Carl Gustaf Emil Mannerheim") is appointed its Commander-in-Chief.
 
-## Year - 1916
- In <i>[Brushaber v. Union Pacific Railroad Co.](https://wikipedia.org/wiki/Brushaber_v._Union_Pacific_Railroad_Co. "Brushaber v. Union Pacific Railroad Co.")</i>, the [Supreme Court of the United States](https://wikipedia.org/wiki/Supreme_Court_of_the_United_States "Supreme Court of the United States") declares the federal [income tax](https://wikipedia.org/wiki/Income_tax "Income tax") constitutional.
+## Year - 1918
+ The [Ukrainian People's Republic](https://wikipedia.org/wiki/Ukrainian_People%27s_Republic "Ukrainian People's Republic") declares independence from [Soviet Russia](https://wikipedia.org/wiki/Russian_Soviet_Federative_Socialist_Republic "Russian Soviet Federative Socialist Republic").
+
+## Year - 1917
+ Sinking of the [SS <i>Laurentic</i>](https://wikipedia.org/wiki/SS_Laurentic_(1908) "SS Laurentic (1908)") after hitting two German mines off the coast of northwest Ireland.
 
 ## Year - 1915
- [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): British [Grand Fleet](https://wikipedia.org/wiki/Grand_Fleet "Grand Fleet") battle cruisers under Vice-Admiral Sir [David Beatty](https://wikipedia.org/wiki/David_Beatty,_1st_Earl_Beatty "David Beatty, 1st Earl Beatty") engage Rear-Admiral [Franz von Hipper](https://wikipedia.org/wiki/Franz_von_Hipper "Franz von Hipper")'s battle cruisers in the [Battle of Dogger Bank](https://wikipedia.org/wiki/Battle_of_Dogger_Bank_(1915) "Battle of Dogger Bank (1915)").
+ [Alexander Graham Bell](https://wikipedia.org/wiki/Alexander_Graham_Bell "Alexander Graham Bell") inaugurates U.S. transcontinental telephone service, speaking from New York to [Thomas Watson](https://wikipedia.org/wiki/Thomas_A._Watson "Thomas A. Watson") in San Francisco.
 
-## Year - 1908
- The first [Boy Scout](https://wikipedia.org/wiki/Scouting "Scouting") troop is organized in England by [Robert Baden-Powell](https://wikipedia.org/wiki/Robert_Baden-Powell "Robert Baden-Powell").
+## Year - 1909
+ [Richard Strauss](https://wikipedia.org/wiki/Richard_Strauss "Richard Strauss")'s opera <i>[Elektra](https://wikipedia.org/wiki/Elektra_(opera) "Elektra (opera)")</i> receives its debut performance at the [Dresden State Opera](https://wikipedia.org/wiki/Semperoper "Semperoper").
 
-## Year - 1900
- [Second Boer War](https://wikipedia.org/wiki/Second_Boer_War "Second Boer War"): [Boers](https://wikipedia.org/wiki/Boer "Boer") stop a British attempt to break the [Siege of Ladysmith](https://wikipedia.org/wiki/Siege_of_Ladysmith "Siege of Ladysmith") in the [Battle of Spion Kop](https://wikipedia.org/wiki/Battle_of_Spion_Kop "Battle of Spion Kop").
+## Year - 1890
+ [Nellie Bly](https://wikipedia.org/wiki/Nellie_Bly "Nellie Bly") completes her [round-the-world journey](https://wikipedia.org/wiki/Circumnavigation "Circumnavigation") in 72 days.
 
-## Year - 1859
- The [United Principalities of Moldavia and Wallachia](https://wikipedia.org/wiki/United_Principalities "United Principalities") (later named Romania) is formed as a personal union under the rule of Domnitor [Alexandru Ioan Cuza](https://wikipedia.org/wiki/Alexandru_Ioan_Cuza "Alexandru Ioan Cuza").
+## Year - 1881
+ [Thomas Edison](https://wikipedia.org/wiki/Thomas_Edison "Thomas Edison") and [Alexander Graham Bell](https://wikipedia.org/wiki/Alexander_Graham_Bell "Alexander Graham Bell") form the [Oriental Telephone Company](https://wikipedia.org/wiki/Oriental_Telephone_Company "Oriental Telephone Company").
 
-## Year - 1857
- The [University of Calcutta](https://wikipedia.org/wiki/University_of_Calcutta "University of Calcutta") is formally founded as the first fully fledged university in [South Asia](https://wikipedia.org/wiki/South_Asia "South Asia").
+## Year - 1879
+ The [Bulgarian National Bank](https://wikipedia.org/wiki/Bulgarian_National_Bank "Bulgarian National Bank") is founded.
 
-## Year - 1848
- [California Gold Rush](https://wikipedia.org/wiki/California_Gold_Rush "California Gold Rush"): [James W. Marshall](https://wikipedia.org/wiki/James_W._Marshall "James W. Marshall") finds [gold](https://wikipedia.org/wiki/Gold "Gold") at [Sutter's Mill](https://wikipedia.org/wiki/Sutter%27s_Mill "Sutter's Mill") near [Sacramento](https://wikipedia.org/wiki/Sacramento,_California "Sacramento, California").
+## Year - 1858
+ The <i>[Wedding March](https://wikipedia.org/wiki/Wedding_March_(Mendelssohn) "Wedding March (Mendelssohn)")</i> by [Felix Mendelssohn](https://wikipedia.org/wiki/Felix_Mendelssohn "Felix Mendelssohn") is played at the marriage of [Queen Victoria](https://wikipedia.org/wiki/Queen_Victoria "Queen Victoria")'s daughter, [Victoria](https://wikipedia.org/wiki/Victoria,_Princess_Royal "Victoria, Princess Royal"), and [Friedrich of Prussia](https://wikipedia.org/wiki/Frederick_III,_German_Emperor "Frederick III, German Emperor"), and becomes a popular [wedding processional](https://wikipedia.org/wiki/Wedding_procession "Wedding procession").
 
-## Year - 1835
- Slaves in [Salvador da Bahia](https://wikipedia.org/wiki/Salvador_da_Bahia "Salvador da Bahia"), Brazil, [stage a revolt](https://wikipedia.org/wiki/Mal%C3%AA_Revolt "Malê Revolt"), which is instrumental in ending slavery there 50 years later.
+## Year - 1819
+ [University of Virginia](https://wikipedia.org/wiki/University_of_Virginia "University of Virginia") chartered by Commonwealth of Virginia, with [Thomas Jefferson](https://wikipedia.org/wiki/Thomas_Jefferson "Thomas Jefferson") one of its founders.
 
-## Year - 1817
- [Crossing of the Andes](https://wikipedia.org/wiki/Crossing_of_the_Andes "Crossing of the Andes"): Many soldiers of [Juan Gregorio de las Heras](https://wikipedia.org/wiki/Juan_Gregorio_de_las_Heras "Juan Gregorio de las Heras") are captured during the [action of Picheuta](https://wikipedia.org/wiki/Action_of_Picheuta "Action of Picheuta").
+## Year - 1792
+ The [London Corresponding Society](https://wikipedia.org/wiki/London_Corresponding_Society "London Corresponding Society") is founded.
 
-## Year - 1758
- During the [Seven Years' War](https://wikipedia.org/wiki/Seven_Years%27_War "Seven Years' War") the leading burghers of [Königsberg](https://wikipedia.org/wiki/K%C3%B6nigsberg "Königsberg") submit to [Elizabeth of Russia](https://wikipedia.org/wiki/Elizabeth_of_Russia "Elizabeth of Russia"), thus forming [Russian Prussia](https://wikipedia.org/wiki/Russian_Prussia "Russian Prussia") (until 1763).
+## Year - 1791
+ The [British Parliament](https://wikipedia.org/wiki/Parliament_of_Great_Britain "Parliament of Great Britain") passes the [Constitutional Act of 1791](https://wikipedia.org/wiki/Constitutional_Act_of_1791 "Constitutional Act of 1791") and splits the old [Province of Quebec](https://wikipedia.org/wiki/Province_of_Quebec_(1763%E2%80%9391) "Province of Quebec (1763-91)") into [Upper Canada](https://wikipedia.org/wiki/Upper_Canada "Upper Canada") and [Lower Canada](https://wikipedia.org/wiki/Lower_Canada "Lower Canada").
 
-## Year - 1742
- [Charles VII Albert](https://wikipedia.org/wiki/Charles_VII,_Holy_Roman_Emperor "Charles VII, Holy Roman Emperor") becomes [Holy Roman Emperor](https://wikipedia.org/wiki/Holy_Roman_Emperor "Holy Roman Emperor").
+## Year - 1787
+ [Shays' Rebellion](https://wikipedia.org/wiki/Shays%27_Rebellion "Shays' Rebellion"): The rebellion's largest confrontation, outside the [Springfield Armory](https://wikipedia.org/wiki/Springfield_Armory "Springfield Armory"), results in the killing of four rebels and the wounding of twenty.
 
-## Year - 1679
- King [Charles II of England](https://wikipedia.org/wiki/Charles_II_of_England "Charles II of England") dissolves the [Cavalier Parliament](https://wikipedia.org/wiki/Cavalier_Parliament "Cavalier Parliament").
+## Year - 1704
+ The [Apalachee massacre](https://wikipedia.org/wiki/Apalachee_massacre "Apalachee massacre"): A combined British and [Muscogee](https://wikipedia.org/wiki/Muscogee "Muscogee") force from the [Province of Carolina](https://wikipedia.org/wiki/Province_of_Carolina "Province of Carolina") destroys the main fortified [mission](https://wikipedia.org/wiki/Christian_mission "Christian mission") of Ayubale, breaking Spain's hold on [Spanish Florida](https://wikipedia.org/wiki/Spanish_Florida "Spanish Florida").
 
-## Year - 1651
- [Arauco War](https://wikipedia.org/wiki/Arauco_War "Arauco War"): Spanish and [Mapuche](https://wikipedia.org/wiki/Mapuche "Mapuche") authorities meet in the [Parliament of Boroa](https://wikipedia.org/wiki/Parliament_of_Boroa "Parliament of Boroa") renewing the fragile peace established at the parliaments of Quillín in [1641](https://wikipedia.org/wiki/Parliament_of_Quill%C3%ADn_(1641) "Parliament of Quillín (1641)") and 1647.
+## Year - 1585
+ [Walter Raleigh](https://wikipedia.org/wiki/Walter_Raleigh "Walter Raleigh") is knighted, shortly after renaming North America region "Virginia", in honor of Elizabeth I, Queen of England, sometimes referred to as the "Virgin Queen".
 
-## Year - 1536
- [King Henry VIII of England](https://wikipedia.org/wiki/Henry_VIII_of_England "Henry VIII of England") suffers an accident while [jousting](https://wikipedia.org/wiki/Jousting "Jousting"), leading to a brain injury that historians say may have influenced his later erratic behaviour and possible impotence.
+## Year - 1575
+ [Luanda](https://wikipedia.org/wiki/Luanda "Luanda"), the capital of [Angola](https://wikipedia.org/wiki/Angola "Angola"), is founded by the Portuguese navigator [Paulo Dias de Novais](https://wikipedia.org/wiki/Paulo_Dias_de_Novais "Paulo Dias de Novais").
 
-## Year - 1458
- [Matthias Corvinus](https://wikipedia.org/wiki/Matthias_Corvinus "Matthias Corvinus") is elected King of Hungary.
+## Year - 1573
+ [Battle of Mikatagahara](https://wikipedia.org/wiki/Battle_of_Mikatagahara "Battle of Mikatagahara"): In Japan, [Takeda Shingen](https://wikipedia.org/wiki/Takeda_Shingen "Takeda Shingen") defeats [Tokugawa Ieyasu](https://wikipedia.org/wiki/Tokugawa_Ieyasu "Tokugawa Ieyasu").
 
-## Year - 1438
- The [Council of Basel](https://wikipedia.org/wiki/Council_of_Basel "Council of Basel") suspends [Pope Eugene IV](https://wikipedia.org/wiki/Pope_Eugene_IV "Pope Eugene IV").
+## Year - 1554
+ [São Paulo](https://wikipedia.org/wiki/S%C3%A3o_Paulo "São Paulo"), Brazil, is founded by [Jesuit](https://wikipedia.org/wiki/Jesuit "Jesuit") priests.
 
-## Year - 914
-Start of the [First Fatimid invasion of Egypt](https://wikipedia.org/wiki/First_Fatimid_invasion_of_Egypt "First Fatimid invasion of Egypt").
+## Year - 1533
+ [Henry VIII of England](https://wikipedia.org/wiki/Henry_VIII_of_England "Henry VIII of England") secretly marries his second wife [Anne Boleyn](https://wikipedia.org/wiki/Anne_Boleyn "Anne Boleyn").
+
+## Year - 1515
+ [Coronation](https://wikipedia.org/wiki/Coronation_of_the_French_monarch "Coronation of the French monarch") of [Francis I of France](https://wikipedia.org/wiki/Francis_I_of_France "Francis I of France") takes place at [Reims Cathedral](https://wikipedia.org/wiki/Reims_Cathedral "Reims Cathedral"), where the new monarch is anointed with the oil of Clovis and girt with the sword of [Charlemagne](https://wikipedia.org/wiki/Charlemagne "Charlemagne").
+
+## Year - 1494
+ [Alfonso II](https://wikipedia.org/wiki/Alfonso_II_of_Naples "Alfonso II of Naples") becomes King of [Naples](https://wikipedia.org/wiki/Kingdom_of_Naples "Kingdom of Naples").
+
+## Year - 1479
+ The [Treaty of Constantinople](https://wikipedia.org/wiki/Treaty_of_Constantinople_(1479) "Treaty of Constantinople (1479)") ends the 16-year-long [First Ottoman-Venetian War](https://wikipedia.org/wiki/First_Ottoman%E2%80%93Venetian_War "First Ottoman-Venetian War").
+
+## Year - 1348
+ A [strong earthquake](https://wikipedia.org/wiki/1348_Friuli_earthquake "1348 Friuli earthquake") strikes the South Alpine region of [Friuli](https://wikipedia.org/wiki/Friuli "Friuli") in modern [Italy](https://wikipedia.org/wiki/Italy "Italy"), causing considerable damage to buildings as far away as Rome.
+
+## Year - 1327
+ Fourteen-year-old [Edward III](https://wikipedia.org/wiki/Edward_III_of_England "Edward III of England") ascends the throne of England after [his father the king](https://wikipedia.org/wiki/Edward_II_of_England "Edward II of England") is forced to abdicate by [Queen Isabella](https://wikipedia.org/wiki/Isabella_of_France "Isabella of France") and her lover, [Roger Mortimer](https://wikipedia.org/wiki/Roger_Mortimer,_1st_Earl_of_March "Roger Mortimer, 1st Earl of March").
+
+## Year - 750
+In the [Battle of the Zab](https://wikipedia.org/wiki/Battle_of_the_Zab "Battle of the Zab"), the [Abbasid](https://wikipedia.org/wiki/Abbasid "Abbasid") rebels defeat the [Umayyad Caliphate](https://wikipedia.org/wiki/Umayyad_Caliphate "Umayyad Caliphate"), leading to the overthrow of the dynasty.
 
 ## Year - 41
-Claudius](https://wikipedia.org/wiki/Claudius "Claudius") is proclaimed [Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") by the [Praetorian Guard](https://wikipedia.org/wiki/Praetorian_Guard "Praetorian Guard") after they assassinate the previous emperor, his nephew [Caligula](https://wikipedia.org/wiki/Caligula "Caligula").
+fter a night of negotiation, [Claudius](https://wikipedia.org/wiki/Claudius "Claudius") is accepted as [Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") by the [Senate](https://wikipedia.org/wiki/Roman_Senate "Roman Senate").
 
 <br />
 
-> _Last Updated: 1/24/2026, 2:44:27 PM (in GMT)_
+> _Last Updated: 1/25/2026, 4:04:49 AM (in GMT)_
