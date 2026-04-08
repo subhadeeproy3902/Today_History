@@ -5,7 +5,7 @@
 
 
 ## Year - 2024
- [Solar eclipse of April 8, 2024](https://wikipedia.org/wiki/Solar_eclipse_of_April_8,_2024 "Solar eclipse of April 8, 2024"): A total [solar eclipse](https://wikipedia.org/wiki/Solar_eclipse "Solar eclipse") takes place at the Moon's [ascending node](https://wikipedia.org/wiki/Orbital_node "Orbital node"), visible across North America.
+ [Solar eclipse](https://wikipedia.org/wiki/Solar_eclipse_of_April_8,_2024 "Solar eclipse of April 8, 2024"): A total [solar eclipse](https://wikipedia.org/wiki/Solar_eclipse "Solar eclipse") takes place at the Moon's [ascending node](https://wikipedia.org/wiki/Orbital_node "Orbital node"), visible across North America.
 
 ## Year - 2020
  [Bernie Sanders](https://wikipedia.org/wiki/Bernie_Sanders "Bernie Sanders") ends his [presidential campaign](https://wikipedia.org/wiki/Bernie_Sanders_2020_presidential_campaign "Bernie Sanders 2020 presidential campaign"), leaving [Joe Biden](https://wikipedia.org/wiki/Joe_Biden "Joe Biden") as the [Democratic Party](https://wikipedia.org/wiki/Democratic_Party_(United_States) "Democratic Party (United States)")'s nominee.
@@ -29,7 +29,7 @@
  The conservative [New Democracy](https://wikipedia.org/wiki/New_Democracy_(Greece) "New Democracy (Greece)") party of [Constantine Mitsotakis](https://wikipedia.org/wiki/Constantine_Mitsotakis "Constantine Mitsotakis") is elected in the [Greek parliamentary election](https://wikipedia.org/wiki/1990_Greek_parliamentary_election "1990 Greek parliamentary election").
 
 ## Year - 1975
- [Voyageurs National Park](https://wikipedia.org/wiki/Voyageurs_National_Park "Voyageurs National Park") is established by the U.S. Congress
+ [Voyageurs National Park](https://wikipedia.org/wiki/Voyageurs_National_Park "Voyageurs National Park") is established by the U.S. Congress.
 
 ## Year - 1974
  [Hank Aaron](https://wikipedia.org/wiki/Hank_Aaron "Hank Aaron") passes [Babe Ruth](https://wikipedia.org/wiki/Babe_Ruth "Babe Ruth") as the [all-time leader in career home runs](https://wikipedia.org/wiki/List_of_Major_League_Baseball_career_home_run_leaders "List of Major League Baseball career home run leaders") by hitting his 715th home run off of [Al Downing](https://wikipedia.org/wiki/Al_Downing_(baseball) "Al Downing (baseball)") at [Atlanta-Fulton County Stadium](https://wikipedia.org/wiki/Atlanta-Fulton_County_Stadium "Atlanta-Fulton County Stadium").
@@ -86,7 +86,7 @@
  The city of [Oulu](https://wikipedia.org/wiki/Oulu "Oulu"), Finland, is founded by [Charles IX of Sweden](https://wikipedia.org/wiki/Charles_IX_of_Sweden "Charles IX of Sweden").
 
 ## Year - 1271
- In [Syria](https://wikipedia.org/wiki/Syria "Syria"), sultan [Baibars](https://wikipedia.org/wiki/Baibars "Baibars") conquers the [Krak des Chevaliers](https://wikipedia.org/wiki/Krak_des_Chevaliers "Krak des Chevaliers").
+ [Fall of Krak des Chevaliers](https://wikipedia.org/wiki/Fall_of_Krak_des_Chevaliers "Fall of Krak des Chevaliers"): In [Syria](https://wikipedia.org/wiki/Syria_(region) "Syria (region)"), sultan [Baibars](https://wikipedia.org/wiki/Baibars "Baibars") conquers the [Krak des Chevaliers](https://wikipedia.org/wiki/Krak_des_Chevaliers "Krak des Chevaliers").
 
 ## Year - 1250
  [Seventh Crusade](https://wikipedia.org/wiki/Seventh_Crusade "Seventh Crusade"): [Ayyubids](https://wikipedia.org/wiki/Ayyubid_dynasty "Ayyubid dynasty") of Egypt capture King [Louis IX of France](https://wikipedia.org/wiki/Louis_IX_of_France "Louis IX of France") in the [Battle of Fariskur](https://wikipedia.org/wiki/Battle_of_Fariskur_(1250) "Battle of Fariskur (1250)").
@@ -108,4 +108,4 @@ The [Battle of Dayr al-'Aqul](https://wikipedia.org/wiki/Battle_of_Dayr_al-%27Aq
 
 <br />
 
-> _Last Updated: 4/8/2026, 4:59:30 AM (in GMT)_
+> _Last Updated: 4/8/2026, 3:57:38 PM (in GMT)_
