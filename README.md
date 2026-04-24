@@ -144,4 +144,4 @@ C - 1479 BC - [Thutmose III](https://wikipedia.org/wiki/Thutmose_III "Thutmose I
 
 <br />
 
-> _Last Updated: 4/24/2026, 3:44:23 AM (in GMT)_
+> _Last Updated: 4/24/2026, 2:56:43 PM (in GMT)_
