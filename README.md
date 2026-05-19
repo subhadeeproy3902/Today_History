@@ -171,4 +171,4 @@ The [Byzantine Empire](https://wikipedia.org/wiki/Byzantine_Empire "Byzantine Em
 
 <br />
 
-> _Last Updated: 5/19/2026, 3:47:25 AM (in GMT)_
+> _Last Updated: 5/19/2026, 3:44:31 PM (in GMT)_
