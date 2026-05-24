@@ -177,4 +177,4 @@ The nobles of [Franconia](https://wikipedia.org/wiki/Franconia "Franconia") and 
 
 <br />
 
-> _Last Updated: 5/24/2026, 3:47:41 AM (in GMT)_
+> _Last Updated: 5/24/2026, 2:52:38 PM (in GMT)_
