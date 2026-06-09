@@ -94,6 +94,9 @@
 ## Year - 1862
  [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): [Stonewall Jackson](https://wikipedia.org/wiki/Stonewall_Jackson "Stonewall Jackson") concludes his successful [Shenandoah Valley Campaign](https://wikipedia.org/wiki/Jackson%27s_Valley_Campaign "Jackson's Valley Campaign") with a victory in the [Battle of Port Republic](https://wikipedia.org/wiki/Battle_of_Port_Republic "Battle of Port Republic").
 
+## Year - 1861
+ The [Beyoglu Protocol](https://wikipedia.org/wiki/Beyoglu_Protocol "Beyoglu Protocol") turns the district of [Mount Lebanon](https://wikipedia.org/wiki/Mount_Lebanon "Mount Lebanon") into an autonomous region within the [Ottoman Empire](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire") and grants the Christians more power over the Druze.
+
 ## Year - 1856
  Five hundred [Mormons](https://wikipedia.org/wiki/Mormon_handcart_pioneers "Mormon handcart pioneers") leave [Iowa City, Iowa](https://wikipedia.org/wiki/Iowa_City,_Iowa "Iowa City, Iowa") for the [Mormon Trail](https://wikipedia.org/wiki/Mormon_Trail "Mormon Trail").
 
@@ -135,4 +138,4 @@ he [Roman emperor](https://wikipedia.org/wiki/Roman_emperor "Roman emperor") [Ne
 
 <br />
 
-> _Last Updated: 6/9/2026, 3:47:17 AM (in GMT)_
+> _Last Updated: 6/9/2026, 3:34:33 PM (in GMT)_
