@@ -186,4 +186,4 @@ After a prolonged siege by rebels who demand his abdication, caliph [Uthman](htt
 
 <br />
 
-> _Last Updated: 6/17/2026, 3:48:25 AM (in GMT)_
+> _Last Updated: 6/17/2026, 3:47:00 PM (in GMT)_
