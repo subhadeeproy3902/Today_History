@@ -174,4 +174,4 @@ Li Yuan becomes [Emperor Gaozu of Tang](https://wikipedia.org/wiki/Emperor_Gaozu
 
 <br />
 
-> _Last Updated: 6/18/2026, 3:48:15 AM (in GMT)_
+> _Last Updated: 6/18/2026, 3:46:47 PM (in GMT)_
