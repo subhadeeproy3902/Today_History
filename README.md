@@ -216,4 +216,4 @@ C - 1312 BC - [Mursili II](https://wikipedia.org/wiki/Mursili_II "Mursili II") [
 
 <br />
 
-> _Last Updated: 6/24/2026, 3:47:24 AM (in GMT)_
+> _Last Updated: 6/24/2026, 3:25:21 PM (in GMT)_
