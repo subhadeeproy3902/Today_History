@@ -1,102 +1,135 @@
 
 # Today's History 📜
 
-2nd July 2026
+3rd July 2026
 
-
-## Year - 2024
- [A stampede](https://wikipedia.org/wiki/2024_Uttar_Pradesh_stampede "2024 Uttar Pradesh stampede") during a religious event in [Uttar Pradesh](https://wikipedia.org/wiki/Uttar_Pradesh "Uttar Pradesh"), India, leaves at least 121 people dead and 150 others injured.
 
 ## Year - 2013
- [2013](https://wikipedia.org/wiki/2013 "2013") - A magnitude 6.1 [earthquake strikes](https://wikipedia.org/wiki/2013_Aceh_earthquake "2013 Aceh earthquake") [Aceh](https://wikipedia.org/wiki/Aceh "Aceh"), Indonesia, killing at least 42 people and injuring 420 others.
+ [President of Egypt](https://wikipedia.org/wiki/President_of_Egypt "President of Egypt") [Mohamed Morsi](https://wikipedia.org/wiki/Mohamed_Morsi "Mohamed Morsi") is [removed from office](https://wikipedia.org/wiki/2013_Egyptian_coup_d%27%C3%A9tat "2013 Egyptian coup d'état") by the [military](https://wikipedia.org/wiki/Egyptian_Armed_Forces "Egyptian Armed Forces") after four days of protests all over the country calling for his resignation, to which he did not respond. The president of the [Supreme Constitutional Court of Egypt](https://wikipedia.org/wiki/Supreme_Constitutional_Court_of_Egypt "Supreme Constitutional Court of Egypt"), [Adly Mansour](https://wikipedia.org/wiki/Adly_Mansour "Adly Mansour"), is declared acting president until further elections are held.
 
-## Year - 2005
- The [Live 8](https://wikipedia.org/wiki/Live_8 "Live 8") benefit concerts takes place in the [G8](https://wikipedia.org/wiki/G8 "G8") states and in South Africa. More than 1,000 musicians perform and are broadcast on 182 television networks and 2,000 radio networks.
+## Year - 2006
+ The [Valencia Metro derailment](https://wikipedia.org/wiki/Valencia_Metro_derailment "Valencia Metro derailment") kills 41 people.
 
-## Year - 2000
- [Vicente Fox Quesada](https://wikipedia.org/wiki/Vicente_Fox_Quesada "Vicente Fox Quesada") is elected the first [President of México](https://wikipedia.org/wiki/President_of_Mexico "President of Mexico") from an opposition party, the [Partido Acción Nacional](https://wikipedia.org/wiki/National_Action_Party_(Mexico) "National Action Party (Mexico)"), after more than 70 years of continuous rule by the [Partido Revolucionario Institucional](https://wikipedia.org/wiki/Institutional_Revolutionary_Party "Institutional Revolutionary Party"), in the [2000 Mexican general election](https://wikipedia.org/wiki/2000_Mexican_general_election "2000 Mexican general election").
+## Year - 1996
+ British Prime Minister [John Major](https://wikipedia.org/wiki/John_Major "John Major") announced the [Stone of Scone](https://wikipedia.org/wiki/Stone_of_Scone "Stone of Scone") would be returned to Scotland.
 
-## Year - 1997
- The Bank of Thailand floats the [baht](https://wikipedia.org/wiki/Baht "Baht"), triggering the [Asian financial crisis](https://wikipedia.org/wiki/1997_Asian_financial_crisis "1997 Asian financial crisis").
+## Year - 1988
+ The [Fatih Sultan Mehmet Bridge](https://wikipedia.org/wiki/Fatih_Sultan_Mehmet_Bridge "Fatih Sultan Mehmet Bridge") in Istanbul, Turkey is completed, providing the second connection between the continents of Europe and Asia over the [Bosphorus](https://wikipedia.org/wiki/Bosphorus "Bosphorus").
 
-## Year - 1994
- [USAir Flight 1016](https://wikipedia.org/wiki/USAir_Flight_1016 "USAir Flight 1016") crashes near [Charlotte Douglas International Airport](https://wikipedia.org/wiki/Charlotte_Douglas_International_Airport "Charlotte Douglas International Airport"), killing 37 of the 57 people on board.
+## Year - 1988
+ [United States Navy](https://wikipedia.org/wiki/United_States_Navy "United States Navy") warship [USS <i>Vincennes</i>](https://wikipedia.org/wiki/USS_Vincennes_(CG-49) "USS Vincennes (CG-49)") shoots down [Iran Air Flight 655](https://wikipedia.org/wiki/Iran_Air_Flight_655 "Iran Air Flight 655") over the [Persian Gulf](https://wikipedia.org/wiki/Persian_Gulf "Persian Gulf"), killing all 290 people aboard.
 
-## Year - 1993
- A mob sets fire to the Hotel Madımak in [Sivas](https://wikipedia.org/wiki/Sivas "Sivas"), Turkey, where a [Alevi](https://wikipedia.org/wiki/Alevi "Alevi") cultural festival was taking place, [killing 37 people](https://wikipedia.org/wiki/Sivas_massacre "Sivas massacre").
+## Year - 1979
+ U.S. President [Jimmy Carter](https://wikipedia.org/wiki/Jimmy_Carter "Jimmy Carter") signs the first directive for [secret aid](https://wikipedia.org/wiki/Operation_Cyclone "Operation Cyclone") to the opponents of the pro-Soviet regime in Kabul.
 
-## Year - 1990
- In the [1990 Mecca tunnel tragedy](https://wikipedia.org/wiki/1990_Mecca_tunnel_tragedy "1990 Mecca tunnel tragedy"), 1,400 Muslim pilgrims are suffocated to death and trampled upon in a pedestrian tunnel leading to the holy city of [Mecca](https://wikipedia.org/wiki/Mecca "Mecca").
+## Year - 1973
+ [David Bowie](https://wikipedia.org/wiki/David_Bowie "David Bowie") retires his stage persona [Ziggy Stardust](https://wikipedia.org/wiki/Ziggy_Stardust_(character) "Ziggy Stardust (character)") with the surprise announcement that it is "the last show that we'll ever do" on the last day of the [Ziggy Stardust Tour](https://wikipedia.org/wiki/Ziggy_Stardust_Tour "Ziggy Stardust Tour").
 
-## Year - 1986
- [Aeroflot Flight 2306](https://wikipedia.org/wiki/Aeroflot_Flight_2306 "Aeroflot Flight 2306") crashes while attempting an emergency landing at [Syktyvkar Airport](https://wikipedia.org/wiki/Syktyvkar_Airport "Syktyvkar Airport") in [Syktyvkar](https://wikipedia.org/wiki/Syktyvkar "Syktyvkar"), in present-day [Komi Republic](https://wikipedia.org/wiki/Komi_Republic "Komi Republic"), Russia, killing 54 people.
+## Year - 1970
+ [Dan-Air Flight 1903](https://wikipedia.org/wiki/Dan-Air_Flight_1903 "Dan-Air Flight 1903") crashes into the [Les Agudes](https://wikipedia.org/wiki/Les_Agudes "Les Agudes") mountain in the [Montseny Massif](https://wikipedia.org/wiki/Montseny_Massif "Montseny Massif") near the village of [Arbúcies](https://wikipedia.org/wiki/Arb%C3%BAcies "Arbúcies") in [Catalonia](https://wikipedia.org/wiki/Catalonia "Catalonia"), Spain, killing all 112 people aboard.
 
-## Year - 1986
- [Rodrigo Rojas](https://wikipedia.org/wiki/Rodrigo_Rojas_DeNegri "Rodrigo Rojas DeNegri") and [Carmen Gloria Quintana](https://wikipedia.org/wiki/Carmen_Gloria_Quintana "Carmen Gloria Quintana") are burnt alive during a street demonstration against the [dictatorship](https://wikipedia.org/wiki/Military_dictatorship_of_Chile_(1973%E2%80%9390) "Military dictatorship of Chile (1973-90)") of General [Augusto Pinochet](https://wikipedia.org/wiki/Augusto_Pinochet "Augusto Pinochet") in [Chile](https://wikipedia.org/wiki/Chile "Chile") in the [Quemados case](https://wikipedia.org/wiki/Quemados_case "Quemados case").
+## Year - 1970
+ [The Troubles](https://wikipedia.org/wiki/The_Troubles "The Troubles"): The "[Falls Curfew](https://wikipedia.org/wiki/Falls_Curfew "Falls Curfew")" begins in [Belfast](https://wikipedia.org/wiki/Belfast "Belfast"), Northern Ireland.
 
-## Year - 1976
- End of [South Vietnam](https://wikipedia.org/wiki/Provisional_Revolutionary_Government_of_the_Republic_of_South_Vietnam "Provisional Revolutionary Government of the Republic of South Vietnam"); Communist [North Vietnam](https://wikipedia.org/wiki/North_Vietnam "North Vietnam") annexes the former [South Vietnam](https://wikipedia.org/wiki/South_Vietnam "South Vietnam") to form the unified [Socialist Republic of Vietnam](https://wikipedia.org/wiki/Vietnam "Vietnam").
+## Year - 1967
+ The [Aden Emergency](https://wikipedia.org/wiki/Aden_Emergency "Aden Emergency"): The [Battle of the Crater](https://wikipedia.org/wiki/Battle_of_the_Crater_(Aden) "Battle of the Crater (Aden)") in which the British [Argyll and Sutherland Highlanders](https://wikipedia.org/wiki/Argyll_and_Sutherland_Highlanders "Argyll and Sutherland Highlanders") retake the [Crater district](https://wikipedia.org/wiki/Crater_(Aden) "Crater (Aden)") following the [Arab Police mutiny](https://wikipedia.org/wiki/Arab_Police_mutiny "Arab Police mutiny").
 
-## Year - 1966
- France conducts its first [nuclear weapon test](https://wikipedia.org/wiki/1966%E2%80%9370_French_nuclear_tests "1966-70 French nuclear tests") in the Pacific, on [Moruroa](https://wikipedia.org/wiki/Moruroa "Moruroa") Atoll.
+## Year - 1952
+ The [SS <i>United States</i>](https://wikipedia.org/wiki/SS_United_States "SS United States") sets sail on her maiden voyage to [Southampton](https://wikipedia.org/wiki/Southampton "Southampton"). During the voyage, the ship takes the [Blue Riband](https://wikipedia.org/wiki/Blue_Riband "Blue Riband") away from the [RMS <i>Queen Mary</i>](https://wikipedia.org/wiki/RMS_Queen_Mary "RMS Queen Mary").
 
-## Year - 1964
- [Civil rights movement](https://wikipedia.org/wiki/Civil_rights_movement "Civil rights movement"): U.S. President [Lyndon B. Johnson](https://wikipedia.org/wiki/Lyndon_B._Johnson "Lyndon B. Johnson") signs the [Civil Rights Act of 1964](https://wikipedia.org/wiki/Civil_Rights_Act_of_1964 "Civil Rights Act of 1964") meant to prohibit segregation in public places.
+## Year - 1952
+ The [Constitution of Puerto Rico](https://wikipedia.org/wiki/Constitution_of_Puerto_Rico "Constitution of Puerto Rico") is approved by the [United States Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress").
 
-## Year - 1937
- [Amelia Earhart](https://wikipedia.org/wiki/Amelia_Earhart "Amelia Earhart") and navigator [Fred Noonan](https://wikipedia.org/wiki/Fred_Noonan "Fred Noonan") are last heard from over the Pacific Ocean and [disappear](https://wikipedia.org/wiki/Speculation_on_the_disappearance_of_Amelia_Earhart_and_Fred_Noonan "Speculation on the disappearance of Amelia Earhart and Fred Noonan") while attempting to make the first equatorial round-the-world flight.
+## Year - 1944
+ World War II: The [Minsk Offensive](https://wikipedia.org/wiki/Minsk_Offensive "Minsk Offensive") clears German troops from the city.
 
-## Year - 1934
- The [Night of the Long Knives](https://wikipedia.org/wiki/Night_of_the_Long_Knives "Night of the Long Knives") ends after three days of killings.
+## Year - 1940
+ [World War II](https://wikipedia.org/wiki/World_War_II "World War II"): The Royal Navy [attacks the French naval squadron](https://wikipedia.org/wiki/Attack_on_Mers-el-K%C3%A9bir "Attack on Mers-el-Kébir") in Algeria, to ensure that it will not fall under German control. Of the four French battleships present, one is sunk, two are damaged, and one escapes back to France.
 
-## Year - 1921
- [World War I](https://wikipedia.org/wiki/World_War_I "World War I"): U.S. President [Warren G. Harding](https://wikipedia.org/wiki/Warren_G._Harding "Warren G. Harding") signs the [Knox-Porter Resolution](https://wikipedia.org/wiki/Knox%E2%80%93Porter_Resolution "Knox-Porter Resolution") formally ending the war between the United States and [Germany](https://wikipedia.org/wiki/Weimar_Republic "Weimar Republic").
+## Year - 1938
+ United States President [Franklin D. Roosevelt](https://wikipedia.org/wiki/Franklin_D._Roosevelt "Franklin D. Roosevelt") dedicates the [Eternal Light Peace Memorial](https://wikipedia.org/wiki/Eternal_Light_Peace_Memorial "Eternal Light Peace Memorial") and lights the eternal flame at [Gettysburg Battlefield](https://wikipedia.org/wiki/Gettysburg_Battlefield "Gettysburg Battlefield").
 
-## Year - 1921
- In the leadup to the battle of Aqaba, T.E.Lawrence and his Arab forces
+## Year - 1938
+ World speed record for a [steam locomotive](https://wikipedia.org/wiki/Steam_locomotive "Steam locomotive") is set in England, by the <i>[Mallard](https://wikipedia.org/wiki/LNER_Class_A4_4468_Mallard "LNER Class A4 4468 Mallard")</i>, which reaches a speed of 125.88 miles per hour (202.58 km/h).
+
+## Year - 1913
+ [Confederate](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America") veterans at the [Great Reunion of 1913](https://wikipedia.org/wiki/Great_Reunion_of_1913 "Great Reunion of 1913") [reenact](https://wikipedia.org/wiki/American_Civil_War_reenactment "American Civil War reenactment") [Pickett's Charge](https://wikipedia.org/wiki/Pickett%27s_Charge "Pickett's Charge"); upon reaching the [high-water mark of the Confederacy](https://wikipedia.org/wiki/High-water_mark_of_the_Confederacy "High-water mark of the Confederacy") they are met by the outstretched hands of friendship from [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") survivors.
+
+## Year - 1908
+ Start of the [Young Turk Revolution](https://wikipedia.org/wiki/Young_Turk_Revolution "Young Turk Revolution") in the [Ottoman Empire](https://wikipedia.org/wiki/Ottoman_Empire "Ottoman Empire"), forcing Sultan [Abdul Hamid II](https://wikipedia.org/wiki/Abdul_Hamid_II "Abdul Hamid II") leads to restore the Constitution of 1876 and reconvene the parliament.
+
+## Year - 1898
+ A Spanish squadron, led by [Pascual Cervera y Topete](https://wikipedia.org/wiki/Pascual_Cervera_y_Topete "Pascual Cervera y Topete"), is defeated by an American squadron under [William T. Sampson](https://wikipedia.org/wiki/William_T._Sampson "William T. Sampson") in the [Battle of Santiago de Cuba](https://wikipedia.org/wiki/Battle_of_Santiago_de_Cuba "Battle of Santiago de Cuba").
 
 ## Year - 1890
- The [U.S. Congress](https://wikipedia.org/wiki/United_States_Congress "United States Congress") passes the [Sherman Antitrust Act](https://wikipedia.org/wiki/Sherman_Antitrust_Act "Sherman Antitrust Act").
+ [Idaho](https://wikipedia.org/wiki/Idaho "Idaho") is admitted as the 43rd [U.S. state](https://wikipedia.org/wiki/U.S._state "U.S. state").
 
-## Year - 1881
- [Charles J. Guiteau](https://wikipedia.org/wiki/Charles_J._Guiteau "Charles J. Guiteau") [shoots and fatally wounds](https://wikipedia.org/wiki/Assassination_of_James_A._Garfield "Assassination of James A. Garfield") U.S. President [James A. Garfield](https://wikipedia.org/wiki/James_A._Garfield "James A. Garfield") (who will die of complications from his wounds on September 19).
+## Year - 1886
+ The <i>[New-York Tribune](https://wikipedia.org/wiki/New-York_Tribune "New-York Tribune")</i> becomes the first newspaper to use a [linotype machine](https://wikipedia.org/wiki/Linotype_machine "Linotype machine"), eliminating [typesetting](https://wikipedia.org/wiki/Typesetting "Typesetting") by hand.
+
+## Year - 1886
+ [Karl Benz](https://wikipedia.org/wiki/Karl_Benz "Karl Benz") officially unveils the [Benz Patent-Motorwagen](https://wikipedia.org/wiki/Benz_Patent-Motorwagen "Benz Patent-Motorwagen"), the first purpose-built automobile.
+
+## Year - 1884
+ [Dow Jones &amp; Company](https://wikipedia.org/wiki/Dow_Jones_%26_Company "Dow Jones &amp; Company") publishes its first stock average.
+
+## Year - 1866
+ [Austro-Prussian War](https://wikipedia.org/wiki/Austro-Prussian_War "Austro-Prussian War") is decided at the [Battle of Königgrätz](https://wikipedia.org/wiki/Battle_of_K%C3%B6niggr%C3%A4tz "Battle of Königgrätz"), enabling Prussia to exclude Austria from German affairs.
 
 ## Year - 1863
- [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): On the second day of the [Battle of Gettysburg](https://wikipedia.org/wiki/Battle_of_Gettysburg "Battle of Gettysburg") - the [Battle of Little Round Top](https://wikipedia.org/wiki/Little_Round_Top "Little Round Top") takes place and results in a [Union](https://wikipedia.org/wiki/Union_(American_Civil_War) "Union (American Civil War)") victory after the [Confederate](https://wikipedia.org/wiki/Confederate_States_of_America "Confederate States of America") troops unsuccessfully try to assault the Union left flank.
+ [American Civil War](https://wikipedia.org/wiki/American_Civil_War "American Civil War"): The final day of the [Battle of Gettysburg](https://wikipedia.org/wiki/Battle_of_Gettysburg "Battle of Gettysburg") culminates with [Pickett's Charge](https://wikipedia.org/wiki/Pickett%27s_Charge "Pickett's Charge").
 
-## Year - 1840
- A M<sub>s</sub>  [7.4 earthquake](https://wikipedia.org/wiki/1840_Ahora_earthquake "1840 Ahora earthquake") strikes present-day Turkey and Armenia; combined with the effects of an eruption on [Mount Ararat](https://wikipedia.org/wiki/Mount_Ararat "Mount Ararat"), kills 10,000 people.
+## Year - 1852
+ Congress establishes the [United States' 2nd mint](https://wikipedia.org/wiki/San_Francisco_Mint "San Francisco Mint") in [San Francisco](https://wikipedia.org/wiki/San_Francisco "San Francisco").
 
-## Year - 1823
- [Bahia](https://wikipedia.org/wiki/Bahia "Bahia") Independence Day: The [Siege of Salvador](https://wikipedia.org/wiki/Siege_of_Salvador_(1822%E2%80%931823) "Siege of Salvador (1822-1823)") ends [Portuguese rule in Brazil](https://wikipedia.org/wiki/Portuguese_rule_in_Brazil "Portuguese rule in Brazil"), with the final defeat of the Portuguese crown loyalists in the province of Bahia.
+## Year - 1849
+ France invades the [Roman Republic](https://wikipedia.org/wiki/Roman_Republic_(1849) "Roman Republic (1849)") and restores the [Papal States](https://wikipedia.org/wiki/Papal_States "Papal States").
 
-## Year - 1776
- [American Revolution](https://wikipedia.org/wiki/American_Revolution "American Revolution"): The [Continental Congress](https://wikipedia.org/wiki/Second_Continental_Congress "Second Continental Congress") adopts the [Lee Resolution](https://wikipedia.org/wiki/Lee_Resolution "Lee Resolution") severing ties with the [Kingdom of Great Britain](https://wikipedia.org/wiki/Kingdom_of_Great_Britain "Kingdom of Great Britain"), although the wording of the formal [Declaration of Independence](https://wikipedia.org/wiki/United_States_Declaration_of_Independence "United States Declaration of Independence") is not adopted until [July 4](https://wikipedia.org/wiki/July_4 "July 4").
+## Year - 1848
+ Governor-General [Peter von Scholten](https://wikipedia.org/wiki/Peter_von_Scholten "Peter von Scholten") emancipates all remaining slaves in the Danish West Indies.
 
-## Year - 1645
- [Wars of the Three Kingdoms](https://wikipedia.org/wiki/Wars_of_the_Three_Kingdoms "Wars of the Three Kingdoms"): [Battle of Alford](https://wikipedia.org/wiki/Battle_of_Alford "Battle of Alford").
+## Year - 1839
+ The first state [normal school](https://wikipedia.org/wiki/Normal_school "Normal school") in the United States, the forerunner to today's [Framingham State University](https://wikipedia.org/wiki/Framingham_State_University "Framingham State University"), opens in [Lexington, Massachusetts](https://wikipedia.org/wiki/Lexington,_Massachusetts "Lexington, Massachusetts") with three students.
 
-## Year - 1644
- [English Civil War](https://wikipedia.org/wiki/English_Civil_War "English Civil War"): [Battle of Marston Moor](https://wikipedia.org/wiki/Battle_of_Marston_Moor "Battle of Marston Moor").
+## Year - 1819
+ [The Bank for Savings in the City of New-York](https://wikipedia.org/wiki/The_Bank_for_Savings_in_the_City_of_New-York "The Bank for Savings in the City of New-York"), the first savings bank in the United States, opens.
 
-## Year - 1582
- [Battle of Yamazaki](https://wikipedia.org/wiki/Battle_of_Yamazaki "Battle of Yamazaki"): [Toyotomi Hideyoshi](https://wikipedia.org/wiki/Toyotomi_Hideyoshi "Toyotomi Hideyoshi") defeats [Akechi Mitsuhide](https://wikipedia.org/wiki/Akechi_Mitsuhide "Akechi Mitsuhide").
+## Year - 1814
+ [War of 1812](https://wikipedia.org/wiki/War_of_1812 "War of 1812"): American forces [capture](https://wikipedia.org/wiki/Capture_of_Fort_Erie "Capture of Fort Erie") [Fort Erie](https://wikipedia.org/wiki/Old_Fort_Erie "Old Fort Erie") from British troops in [Upper Canada](https://wikipedia.org/wiki/Upper_Canada "Upper Canada").
 
-## Year - 1494
- [Age of Discovery](https://wikipedia.org/wiki/Age_of_Discovery "Age of Discovery"): The [Treaty of Tordesillas](https://wikipedia.org/wiki/Treaty_of_Tordesillas "Treaty of Tordesillas") is ratified by Spain.
+## Year - 1778
+ American Revolutionary War: The Iroquois, allied with Britain, massacre 360 Patriot soldiers during the [Battle of Wyoming](https://wikipedia.org/wiki/Battle_of_Wyoming "Battle of Wyoming").
 
-## Year - 1298
- [Battle of Göllheim](https://wikipedia.org/wiki/Battle_of_G%C3%B6llheim "Battle of Göllheim"): [Albert I of Habsburg](https://wikipedia.org/wiki/Albert_I_of_Habsburg "Albert I of Habsburg") defeats [Adolf of Nassau-Weilburg](https://wikipedia.org/wiki/Adolf,_King_of_the_Romans "Adolf, King of the Romans").
+## Year - 1775
+ [American Revolutionary War](https://wikipedia.org/wiki/American_Revolutionary_War "American Revolutionary War"): [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington") takes command of the [Continental Army](https://wikipedia.org/wiki/Continental_Army "Continental Army") at [Cambridge, Massachusetts](https://wikipedia.org/wiki/Cambridge,_Massachusetts "Cambridge, Massachusetts").
 
-## Year - 866
-[Battle of Brissarthe](https://wikipedia.org/wiki/Battle_of_Brissarthe "Battle of Brissarthe"): The [Franks](https://wikipedia.org/wiki/Francia "Francia") led by [Robert the Strong](https://wikipedia.org/wiki/Robert_the_Strong "Robert the Strong") are defeated by a joint [Breton](https://wikipedia.org/wiki/Bretons "Bretons")-[Viking](https://wikipedia.org/wiki/Vikings "Vikings") army.
+## Year - 1767
+ [Norway](https://wikipedia.org/wiki/Norway "Norway")'s oldest newspaper still in print, <i>[Adresseavisen](https://wikipedia.org/wiki/Adresseavisen "Adresseavisen")</i>, is founded and the first edition is published.
 
-## Year - 626
-[Li Shimin](https://wikipedia.org/wiki/Li_Shimin "Li Shimin"), the future [Emperor Taizong of Tang](https://wikipedia.org/wiki/Emperor_Taizong_of_Tang "Emperor Taizong of Tang"), ambushes and kills his rival brothers [Li Yuanji](https://wikipedia.org/wiki/Li_Yuanji "Li Yuanji") and [Li Jiancheng](https://wikipedia.org/wiki/Li_Jiancheng "Li Jiancheng") in the [Xuanwu Gate Incident](https://wikipedia.org/wiki/Xuanwu_Gate_Incident "Xuanwu Gate Incident").
+## Year - 1767
+ [Pitcairn Island](https://wikipedia.org/wiki/Pitcairn_Island "Pitcairn Island") is discovered by [Midshipman](https://wikipedia.org/wiki/Midshipman "Midshipman") Robert Pitcairn on an expeditionary voyage commanded by [Philip Carteret](https://wikipedia.org/wiki/Philip_Carteret "Philip Carteret").
 
-## Year - 311
-Begin of the papacy of [Pope Miltiades](https://wikipedia.org/wiki/Pope_Miltiades "Pope Miltiades").
+## Year - 1754
+ [French and Indian War](https://wikipedia.org/wiki/French_and_Indian_War "French and Indian War"): [George Washington](https://wikipedia.org/wiki/George_Washington "George Washington") [surrenders Fort Necessity](https://wikipedia.org/wiki/Battle_of_Fort_Necessity "Battle of Fort Necessity") to [French forces](https://wikipedia.org/wiki/Military_history_of_France "Military history of France").
+
+## Year - 1608
+ [Québec City](https://wikipedia.org/wiki/Qu%C3%A9bec_City "Québec City") is founded by [Samuel de Champlain](https://wikipedia.org/wiki/Samuel_de_Champlain "Samuel de Champlain").
+
+## Year - 1535
+ [Diego de Almagro](https://wikipedia.org/wiki/Diego_de_Almagro "Diego de Almagro") leaves the recently conquered [Inca](https://wikipedia.org/wiki/Inca_Empire "Inca Empire") capital of [Cuzco](https://wikipedia.org/wiki/Cuzco "Cuzco") to lead [an expedition to Chile](https://wikipedia.org/wiki/Diego_de_Almagro%27s_expedition_to_Chile "Diego de Almagro's expedition to Chile").
+
+## Year - 1450
+ [Jack Cade and his followers](https://wikipedia.org/wiki/Jack_Cade%27s_Rebellion "Jack Cade's Rebellion") enter London unhindered by the government of king Henry VI.
+
+## Year - 1035
+ [William the Conqueror](https://wikipedia.org/wiki/William_the_Conqueror "William the Conqueror") becomes the [Duke of Normandy](https://wikipedia.org/wiki/Duke_of_Normandy "Duke of Normandy"), reigning until 1087.
+
+## Year - 987
+[Hugh Capet](https://wikipedia.org/wiki/Hugh_Capet "Hugh Capet") is crowned King of France, the first of the [Capetian dynasty](https://wikipedia.org/wiki/Capetian_dynasty "Capetian dynasty") that would rule France until the [French Revolution](https://wikipedia.org/wiki/French_Revolution "French Revolution") in [1792](https://wikipedia.org/wiki/1792 "1792").
+
+## Year - 324
+[Battle of Adrianople](https://wikipedia.org/wiki/Battle_of_Adrianople_(324) "Battle of Adrianople (324)"): [Constantine I](https://wikipedia.org/wiki/Constantine_the_Great "Constantine the Great") defeats [Licinius](https://wikipedia.org/wiki/Licinius "Licinius"), who flees to [Byzantium](https://wikipedia.org/wiki/Byzantium "Byzantium").
 
 <br />
 
-> _Last Updated: 7/2/2026, 4:19:16 PM (in GMT)_
+> _Last Updated: 7/3/2026, 6:08:19 AM (in GMT)_
