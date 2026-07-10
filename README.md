@@ -213,4 +213,4 @@ Emperor [Hadrian](https://wikipedia.org/wiki/Hadrian "Hadrian") of Rome dies of 
 
 <br />
 
-> _Last Updated: 7/10/2026, 6:25:20 AM (in GMT)_
+> _Last Updated: 7/10/2026, 4:36:19 PM (in GMT)_
