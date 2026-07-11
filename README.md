@@ -207,4 +207,4 @@ Byzantine emperor [Michael I](https://wikipedia.org/wiki/Michael_I_Rangabe "Mich
 
 <br />
 
-> _Last Updated: 7/11/2026, 5:25:49 AM (in GMT)_
+> _Last Updated: 7/11/2026, 3:31:17 PM (in GMT)_
