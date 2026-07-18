@@ -141,4 +141,4 @@ Chinese forces under general [Li Shiji](https://wikipedia.org/wiki/Li_Shiji "Li 
 
 <br />
 
-> _Last Updated: 7/18/2026, 5:08:32 AM (in GMT)_
+> _Last Updated: 7/18/2026, 3:29:00 PM (in GMT)_
