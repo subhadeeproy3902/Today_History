@@ -210,4 +210,4 @@ Siege of Jerusalem](https://wikipedia.org/wiki/Siege_of_Jerusalem_(AD_70) "Siege
 
 <br />
 
-> _Last Updated: 7/20/2026, 5:52:56 AM (in GMT)_
+> _Last Updated: 7/20/2026, 4:08:32 PM (in GMT)_
