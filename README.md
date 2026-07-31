@@ -159,4 +159,4 @@ The oldest recorded eruption of [Mount Fuji](https://wikipedia.org/wiki/Mount_Fu
 
 <br />
 
-> _Last Updated: 7/31/2026, 5:49:44 AM (in GMT)_
+> _Last Updated: 7/31/2026, 4:16:25 PM (in GMT)_
