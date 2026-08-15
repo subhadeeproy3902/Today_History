@@ -305,4 +305,4 @@ Arab-Byzantine wars: [Maslama ibn Abd al-Malik](https://wikipedia.org/wiki/Masla
 
 <br />
 
-> _Last Updated: 8/15/2026, 3:14:06 AM (in GMT)_
+> _Last Updated: 8/15/2026, 2:49:30 PM (in GMT)_
