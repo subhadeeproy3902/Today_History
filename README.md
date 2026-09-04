@@ -162,4 +162,4 @@ Li Shimin, [posthumously](https://wikipedia.org/wiki/Posthumous_name "Posthumous
 
 <br />
 
-> _Last Updated: 9/4/2026, 7:22:06 AM (in GMT)_
+> _Last Updated: 9/4/2026, 5:42:54 PM (in GMT)_
