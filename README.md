@@ -252,4 +252,4 @@ fter the capture of [Herod's Palace](https://wikipedia.org/wiki/Herod%27s_Palace
 
 <br />
 
-> _Last Updated: 9/8/2026, 7:22:43 AM (in GMT)_
+> _Last Updated: 9/8/2026, 6:00:42 PM (in GMT)_
