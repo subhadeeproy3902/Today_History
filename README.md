@@ -117,4 +117,4 @@ Saladin won Jerusalem after the city surrendered to his forces following a prolo
 
 <br />
 
-> _Last Updated: 10/2/2026, 8:51:34 AM (in GMT)_
+> _Last Updated: 10/2/2026, 7:26:49 PM (in GMT)_
