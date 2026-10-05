@@ -138,4 +138,4 @@ King [Louis the Pious](https://wikipedia.org/wiki/Louis_the_Pious "Louis the Pio
 
 <br />
 
-> _Last Updated: 10/5/2026, 9:30:30 AM (in GMT)_
+> _Last Updated: 10/5/2026, 9:34:32 PM (in GMT)_
