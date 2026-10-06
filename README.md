@@ -144,4 +144,4 @@ D 23 - Rebels decapitate [Wang Mang](https://wikipedia.org/wiki/Wang_Mang "Wang 
 
 <br />
 
-> _Last Updated: 10/6/2026, 9:16:28 AM (in GMT)_
+> _Last Updated: 10/6/2026, 7:44:13 PM (in GMT)_
