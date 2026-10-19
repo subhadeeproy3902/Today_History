@@ -174,4 +174,4 @@ The Vandals, led by King [Gaiseric](https://wikipedia.org/wiki/Gaiseric "Gaiseri
 
 <br />
 
-> _Last Updated: 10/19/2026, 8:01:08 AM (in GMT)_
+> _Last Updated: 10/19/2026, 8:05:48 PM (in GMT)_
