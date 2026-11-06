@@ -75,4 +75,4 @@ A powerful earthquake destroys large portions of the [Walls of Constantinople](h
 
 <br />
 
-> _Last Updated: 11/6/2026, 9:41:55 AM (in GMT)_
+> _Last Updated: 11/6/2026, 8:29:55 PM (in GMT)_
