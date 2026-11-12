@@ -192,4 +192,4 @@ The 13-year-old [Lothair III](https://wikipedia.org/wiki/Lothair_of_France "Loth
 
 <br />
 
-> _Last Updated: 11/12/2026, 10:06:33 AM (in GMT)_
+> _Last Updated: 11/12/2026, 9:31:37 PM (in GMT)_
