@@ -180,4 +180,4 @@ Emperor [Charles the Fat](https://wikipedia.org/wiki/Charles_the_Fat "Charles th
 
 <br />
 
-> _Last Updated: 11/17/2026, 10:59:33 AM (in GMT)_
+> _Last Updated: 11/17/2026, 10:33:16 PM (in GMT)_
