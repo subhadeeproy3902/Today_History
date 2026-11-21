@@ -44,10 +44,10 @@
  [China Eastern Airlines Flight 5210](https://en.wikipedia.org/wiki/China_Eastern_Airlines_Flight_5210 "China Eastern Airlines Flight 5210") crashes after takeoff from [Baotou Donghe Airport](https://en.wikipedia.org/wiki/Baotou_Donghe_Airport "Baotou Donghe Airport"), killing 55.
 
 ## Year - 2004
- The [Paris Club](https://en.wikipedia.org/wiki/Paris_Club "Paris Club") agrees to write off 80% (up to $100<span typeof="mw:Entity" id="mwAa0"> </span>billion) of [Iraq](https://en.wikipedia.org/wiki/Iraq "Iraq")'s external debt.
+ The [Paris Club](https://en.wikipedia.org/wiki/Paris_Club "Paris Club") agrees to write off 80% (up to $100<span typeof="mw:Entity" id="mwAbE"> </span>billion) of [Iraq](https://en.wikipedia.org/wiki/Iraq "Iraq")'s external debt.
 
 ## Year - 2004
- [Dominica](https://en.wikipedia.org/wiki/Dominica "Dominica") is hit by the most destructive [earthquake](https://en.wikipedia.org/wiki/Earthquake "Earthquake") in its history. The northern half of the island sustains the most damage, especially the town of [Portsmouth](https://en.wikipedia.org/wiki/Portsmouth,_Dominica "Portsmouth, Dominica"). In neighboring [Guadeloupe](https://en.wikipedia.org/wiki/Guadeloupe "Guadeloupe"), one person is killed.
+ [Dominica](https://en.wikipedia.org/wiki/Dominica "Dominica") is hit by the most [destructive earthquake](https://en.wikipedia.org/wiki/2004_Les_Saintes_earthquake "2004 Les Saintes earthquake") in its history. The northern half of the island sustains the most damage, especially the town of [Portsmouth](https://en.wikipedia.org/wiki/Portsmouth,_Dominica "Portsmouth, Dominica"). In neighboring [Guadeloupe](https://en.wikipedia.org/wiki/Guadeloupe "Guadeloupe"), one person is killed.
 
 ## Year - 2004
  The second round of the [Ukrainian presidential election](https://en.wikipedia.org/wiki/2004_Ukrainian_presidential_election "2004 Ukrainian presidential election") is held, giving rise to massive protests and controversy over the election's integrity.
@@ -216,4 +216,4 @@ E - [Judas Maccabeus](https://en.wikipedia.org/wiki/Judas_Maccabeus "Judas Macca
 
 <br />
 
-> _Last Updated: 11/21/2026, 10:04:23 AM (in GMT)_
+> _Last Updated: 11/21/2026, 8:37:51 PM (in GMT)_
