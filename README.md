@@ -120,4 +120,4 @@ After the death of [Anastasius II](https://en.wikipedia.org/wiki/Pope_Anastasius
 
 <br />
 
-> _Last Updated: 11/22/2026, 10:07:06 AM (in GMT)_
+> _Last Updated: 11/22/2026, 8:47:14 PM (in GMT)_
